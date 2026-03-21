@@ -31,8 +31,12 @@ jobs:
       - name: Set up Ruby
         uses: ruby/setup-ruby@v1
         with:
-          ruby-version: '3.2' # oder die Version, die du brauchst
-          bundler-cache: true  # automatisch `bundle install`
+          ruby-version: '3.2'
+          bundler-cache: false  # wir machen explizit bundle install
+
+      - name: Install dependencies
+        working-directory: src
+        run: bundle install
 
       - name: Build Jekyll site
         working-directory: src
