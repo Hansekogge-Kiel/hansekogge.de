@@ -45,16 +45,19 @@ plugins:
 lang: de-DE
 
 navigation_header:
-  - title: Home
+  - title: Startseite
     url: /
-  - title: Elements
-    url: /elements/
-  - title: Blog
-    url: /blog/
-  - title: Categories
-    url: /categories/
-  - title: Search
-    url: /search/
+  - title: Über uns
+    url: /about/
+  - title: Mitfahren
+    url: /mitfahren/
+  - title: Mitmachen
+    url: /mitmachen/
+  - title: Kontakt
+    url: /kontakt/
+  - title: FAQ
+    url: /faq/
+
 
 # Exclude from processing.
 # The following items will not be processed, by default.
