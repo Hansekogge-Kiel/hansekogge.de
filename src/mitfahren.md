@@ -4,6 +4,8 @@ title: Mitfahren
 permalink: /mitfahren/
 ---
 
+Aktuelle Position der Kogge: [Marinetraffic](https://www.marinetraffic.com/en/ais/details/ships/shipid:133492).
+
 Erlebnisse an Bord
 
 Koggefahrten – Geschichte hautnah erleben
