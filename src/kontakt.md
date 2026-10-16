@@ -1,13 +1,25 @@
 ---
 layout: page
 title: Kontakt
-permalink: /kontakt/
+lead: Wir freuen uns auf Ihre Nachricht.
 ---
 
-Treten Sie mit uns in Verbindung
+## Geschäftsstelle
 
-Wir freuen uns darauf, von Ihnen zu hören! Für Informationen zu Mitgliedschaften, Spendenmöglichkeiten oder unseren
-Fahrten, kontaktieren Sie uns direkt über das Kontaktformular auf unserer Webseite oder per Telefon.
+Hans-Peter Bielefeld, Knooper Weg 109, 24116 Kiel
+Tel. +49 431 2190250 · [buero@hansekogge.de](mailto:buero@hansekogge.de)
 
-Steigen Sie an Bord der Geschichte und erleben Sie, was die Kieler Hansekogge so besonders macht. Werden Sie Teil
-unseres Abenteuers – wir freuen uns auf Sie!
+**Postadresse:** Förderverein Historische Hansekogge Kiel e.V., Postfach 20 03, 24019 Kiel
+
+## Liegeplatz
+
+Satorikai, Kiel – direkt vor dem Schifffahrtsmuseum ([Karte & Anfahrt]({{ '/schiff/liegeplatz/' | relative_url }})).
+
+## Weitere Ansprechpartner
+
+Siehe [Vorstand & Ansprechpartner]({{ '/verein/vorstand/' | relative_url }}).
+
+## Bankverbindung
+
+Förde Sparkasse · IBAN DE26 2105 0170 1002 4969 23 · BIC NOLADE21KIE
+Amtsgericht Kiel VR 3291

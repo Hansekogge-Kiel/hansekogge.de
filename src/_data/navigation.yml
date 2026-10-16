@@ -1,0 +1,29 @@
+- title: Startseite
+  url: /
+- title: Verein
+  url: /verein/
+  children:
+    - { title: Der Verein, url: /verein/ }
+    - { title: Vorstand & Ansprechpartner, url: /verein/vorstand/ }
+    - { title: Satzung, url: /verein/satzung/ }
+    - { title: Mitglied werden, url: /verein/mitglied-werden/ }
+- title: Das Schiff
+  url: /schiff/
+  children:
+    - { title: Kurzinfo & Daten, url: /schiff/ }
+    - { title: Historisches, url: /schiff/historie/ }
+    - { title: Der Bau, url: /schiff/bau/ }
+    - { title: An Bord, url: /schiff/an-bord/ }
+    - { title: Liegeplatz & Position, url: /schiff/liegeplatz/ }
+- title: Fahrten & Buchung
+  url: /toerns/
+  children:
+    - { title: Überblick, url: /toerns/ }
+    - { title: Gästefahrten, url: /toerns/gaestefahrten/ }
+    - { title: Charter & Events, url: /toerns/charter/ }
+    - { title: Langfahrten – Infos, url: /toerns/langfahrten/ }
+    - { title: Buchungsanfrage, url: /toerns/buchung/ }
+- title: Termine
+  url: /termine/
+- title: Kontakt
+  url: /kontakt/
