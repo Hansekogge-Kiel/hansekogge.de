@@ -1,0 +1,409 @@
+# Erzeugt von tools/update_termine.py – nicht von Hand bearbeiten
+- start: '2026-05-04'
+  end: ''
+  time: '17:30'
+  title: Crewabend
+  status: intern
+  location: ''
+- start: '2026-05-09'
+  end: ''
+  time: '10:00'
+  title: Ansegeln
+  status: intern
+  location: ''
+- start: '2026-05-17'
+  end: ''
+  time: '17:30'
+  title: Crewabend
+  status: intern
+  location: ''
+- start: '2026-05-22'
+  end: ''
+  time: '10:00'
+  title: Anreise zu den Sprottentagen in Eckernförde
+  status: frei
+  location: Sartorikai
+- start: '2026-05-23'
+  end: ''
+  time: '18:00'
+  title: Sprotten-Sailing
+  status: frei
+  location: Hafen Eckernförde
+- start: '2026-05-24'
+  end: ''
+  time: '18:00'
+  title: Sprotten-Sailing
+  status: frei
+  location: Hafen Eckernförde
+- start: '2026-05-25'
+  end: ''
+  time: '18:00'
+  title: Sprotten-Sailing
+  status: frei
+  location: Hafen Eckernförde
+- start: '2026-05-26'
+  end: ''
+  time: '10:00'
+  title: Überfahrt Eckernförde nach Kiel
+  status: frei
+  location: Hafen Eckernförde
+- start: '2026-05-28'
+  end: ''
+  time: '17:30'
+  title: After Work Schnupper Segeln
+  status: frei
+  location: Sartorikai
+- start: '2026-05-30'
+  end: ''
+  time: '11:00'
+  title: Ausgebucht
+  status: voll
+  location: Sartorikai
+- start: '2026-06-04'
+  end: ''
+  time: '17:30'
+  title: Crewabend
+  status: intern
+  location: ''
+- start: '2026-06-09'
+  end: ''
+  time: '17:30'
+  title: After Work Schnupper Segeln
+  status: frei
+  location: Sartorikai
+- start: '2026-06-13'
+  end: ''
+  time: '13:00'
+  title: Ausgebucht
+  status: voll
+  location: Sartorikai
+- start: '2026-06-16'
+  end: ''
+  time: '12:00'
+  title: Inklusionsfahrt
+  status: voll
+  location: Sartorikai
+- start: '2026-06-17'
+  end: ''
+  time: '17:30'
+  title: Crewabend
+  status: intern
+  location: ''
+- start: '2026-06-20'
+  end: ''
+  time: '11:00'
+  title: Kieler Woche Fahrt
+  status: frei
+  location: ''
+- start: '2026-06-23'
+  end: ''
+  time: '15:00'
+  title: Kieler Woche Fahrt
+  status: frei
+  location: ''
+- start: '2026-06-24'
+  end: ''
+  time: '11:00'
+  title: Kieler Woche Fahrt
+  status: frei
+  location: ''
+- start: '2026-06-25'
+  end: ''
+  time: ''
+  title: Ausgebucht
+  status: voll
+  location: ''
+- start: '2026-06-26'
+  end: ''
+  time: ''
+  title: Ausgebucht
+  status: voll
+  location: ''
+- start: '2026-06-27'
+  end: ''
+  time: '10:00'
+  title: Windjammerparade
+  status: voll
+  location: ''
+- start: '2026-06-28'
+  end: ''
+  time: '11:00'
+  title: Kieler Woche Fahrt
+  status: frei
+  location: ''
+- start: '2026-07-04'
+  end: ''
+  time: ''
+  title: Ausgebucht
+  status: voll
+  location: ''
+- start: '2026-07-04'
+  end: ''
+  time: '17:30'
+  title: Crewabend
+  status: intern
+  location: ''
+- start: '2026-07-07'
+  end: ''
+  time: '17:30'
+  title: After Work Schnupper Segeln
+  status: frei
+  location: Sartorikai
+- start: '2026-07-17'
+  end: ''
+  time: '17:30'
+  title: Crewabend
+  status: intern
+  location: ''
+- start: '2026-07-17'
+  end: ''
+  time: 09:00
+  title: Fahrt von Kiel nach Laboe
+  status: frei
+  location: Sartorikai
+- start: '2026-07-17'
+  end: ''
+  time: '15:00'
+  title: Laboe vom Wasser aus genießen
+  status: frei
+  location: Hafen Laboe
+- start: '2026-07-18'
+  end: ''
+  time: '15:00'
+  title: Laboe vom Wasser aus genießen
+  status: frei
+  location: Hafen Laboe
+- start: '2026-07-18'
+  end: ''
+  time: '17:30'
+  title: Rückfahrt nach Kiel
+  status: frei
+  location: Hafen Laboe
+- start: '2026-07-22'
+  end: ''
+  time: '11:00'
+  title: Ferientörn
+  status: voll
+  location: Sartorikai
+- start: '2026-07-27'
+  end: ''
+  time: ''
+  title: Ausgebucht
+  status: voll
+  location: ''
+- start: '2026-07-30'
+  end: ''
+  time: '10:00'
+  title: Anreise zu den Piratentagen in Eckernförde
+  status: frei
+  location: Sartorikai
+- start: '2026-07-31'
+  end: ''
+  time: '13:00'
+  title: Piratenfahrt
+  status: frei
+  location: Hafen Eckernförde
+- start: '2026-07-31'
+  end: ''
+  time: '16:30'
+  title: Strandüberfall
+  status: voll
+  location: Hafen Eckernförde
+- start: '2026-08-01'
+  end: ''
+  time: '15:00'
+  title: Piratenfahrt
+  status: frei
+  location: Hafen Eckernförde
+- start: '2026-08-02'
+  end: ''
+  time: '15:00'
+  title: Piratenfahrt
+  status: frei
+  location: Hafen Eckernförde
+- start: '2026-08-03'
+  end: '2026-08-05'
+  time: ''
+  title: Überfahrt von Eckernförde nach Rostock
+  status: frei
+  location: Hafen Eckernförde
+- start: '2026-08-04'
+  end: ''
+  time: '17:30'
+  title: Crewabend
+  status: intern
+  location: ''
+- start: '2026-08-06'
+  end: '2026-08-07'
+  time: ''
+  title: Ausgebucht
+  status: voll
+  location: Hafen Rostock
+- start: '2026-08-08'
+  end: ''
+  time: '17:00'
+  title: Ausgebucht
+  status: voll
+  location: Hafen Rostock
+- start: '2026-08-08'
+  end: ''
+  time: '10:00'
+  title: Hanse Sailing
+  status: frei
+  location: Hafen Rostock
+- start: '2026-08-09'
+  end: ''
+  time: '10:00'
+  title: Hanse Sailing
+  status: frei
+  location: Hafen Rostock
+- start: '2026-08-10'
+  end: '2026-08-16'
+  time: ''
+  title: Sommertörn
+  status: frei
+  location: Hafen Rostock
+- start: '2026-08-17'
+  end: ''
+  time: '17:30'
+  title: Crewabend
+  status: intern
+  location: ''
+- start: '2026-08-22'
+  end: ''
+  time: ''
+  title: Ausgebucht
+  status: voll
+  location: Sartorikai
+- start: '2026-08-26'
+  end: ''
+  time: '10:00'
+  title: Ausgebucht
+  status: voll
+  location: Sartorikai
+- start: '2026-08-28'
+  end: '2026-08-29'
+  time: '18:00'
+  title: Museumsnacht
+  status: frei
+  location: Sartorikai
+- start: '2026-08-30'
+  end: ''
+  time: ''
+  title: Ausgebucht
+  status: voll
+  location: Schwentinemündung Wellingdorf
+- start: '2026-09-01'
+  end: ''
+  time: '17:30'
+  title: After Work Schnupper Segeln
+  status: voll
+  location: Sartorikai
+- start: '2026-09-03'
+  end: ''
+  time: '17:00'
+  title: Ausgebucht
+  status: voll
+  location: Sartorikai
+- start: '2026-09-04'
+  end: ''
+  time: '12:00'
+  title: Ausgebucht
+  status: voll
+  location: ''
+- start: '2026-09-04'
+  end: ''
+  time: '17:30'
+  title: Crewabend
+  status: intern
+  location: ''
+- start: '2026-09-05'
+  end: ''
+  time: ''
+  title: Schnippelparty an Bord
+  status: frei
+  location: Sartorikai
+- start: '2026-09-06'
+  end: ''
+  time: '10:00'
+  title: Jubiläum - 35 Jahre Kogge in Fahrt
+  status: frei
+  location: Sartorikai
+- start: '2026-09-08'
+  end: ''
+  time: '17:30'
+  title: After Work Schnupper Segeln
+  status: frei
+  location: Sartorikai
+- start: '2026-09-12'
+  end: ''
+  time: '11:00'
+  title: Ausgebucht
+  status: voll
+  location: ''
+- start: '2026-09-13'
+  end: ''
+  time: '10:00'
+  title: Fahrt zum Tiessenkai
+  status: frei
+  location: Sartorikai
+- start: '2026-09-13'
+  end: ''
+  time: '12:00'
+  title: Fahrt über die Förde
+  status: frei
+  location: Tiessenkai
+- start: '2026-09-13'
+  end: ''
+  time: '17:00'
+  title: Rückfahrt nach Kiel
+  status: frei
+  location: Tiessenkai
+- start: '2026-09-17'
+  end: ''
+  time: '17:30'
+  title: Crewabend
+  status: intern
+  location: ''
+- start: '2026-09-22'
+  end: ''
+  time: '17:00'
+  title: After Work Schnupper Segeln
+  status: frei
+  location: Sartorikai
+- start: '2026-09-23'
+  end: ''
+  time: '18:00'
+  title: Ausgebucht
+  status: voll
+  location: Sartorikai
+- start: '2026-09-24'
+  end: ''
+  time: '17:30'
+  title: Ausgebucht
+  status: voll
+  location: ''
+- start: '2026-10-04'
+  end: ''
+  time: '17:30'
+  title: Crewabend
+  status: intern
+  location: ''
+- start: '2026-10-06'
+  end: ''
+  time: '16:30'
+  title: After Work Schnupper Segeln
+  status: frei
+  location: Sartorikai
+- start: '2026-10-10'
+  end: ''
+  time: '10:00'
+  title: Absegeln und Abtakeln
+  status: intern
+  location: ''
+- start: '2026-12-05'
+  end: ''
+  time: ''
+  title: Weihnachtsfeier
+  status: intern
+  location: Sartorikai

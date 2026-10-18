@@ -1,0 +1,31 @@
+{%- comment -%} Parameter: events (Liste), limit (optional) {%- endcomment -%}
+{%- assign mon = "Januar,Februar,März,April,Mai,Juni,Juli,August,September,Oktober,November,Dezember" | split: "," -%}
+{%- assign mon_kurz = "Jan,Feb,Mär,Apr,Mai,Jun,Jul,Aug,Sep,Okt,Nov,Dez" | split: "," -%}
+{%- assign last_month = "" -%}
+{%- assign shown = 0 -%}
+{%- for e in include.events -%}
+{%- if include.limit and shown >= include.limit -%}{%- break -%}{%- endif -%}
+{%- assign shown = shown | plus: 1 -%}
+{%- assign ym = e.start | date: "%Y-%m" -%}
+{%- assign mi = e.start | date: "%-m" | minus: 1 -%}
+{%- if include.group and ym != last_month -%}
+{%- if last_month != "" -%}</ul>{%- endif -%}
+<h3 class="month">{{ mon[mi] }} {{ e.start | date: "%Y" }}</h3>
+<ul class="termine full">
+{%- assign last_month = ym -%}
+{%- endif -%}
+<li>
+<div class="date"><b>{{ e.start | date: "%-d" }}</b><span>{{ mon_kurz[mi] }}</span></div>
+<div>
+<strong>{{ e.title }}</strong>
+<div class="when">
+{%- if e.end != "" -%}bis {{ e.end | date: "%-d.%-m." }}{%- elsif e.time != "" and e.time != "00:00" -%}ab {{ e.time }} Uhr{%- endif -%}
+{%- if e.location != "" -%}{%- if e.end != "" or e.time != "" and e.time != "00:00" -%} · {%- endif -%}{{ e.location }}{%- endif -%}
+</div>
+</div>
+{%- if e.status == "frei" -%}<span class="tag gruen">Gäste willkommen</span>
+{%- elsif e.status == "voll" -%}<span class="tag rot">ausgebucht</span>
+{%- else -%}<span class="tag blau">vereinsintern</span>{%- endif -%}
+</li>
+{%- endfor -%}
+{%- if include.group and last_month != "" -%}</ul>{%- endif -%}

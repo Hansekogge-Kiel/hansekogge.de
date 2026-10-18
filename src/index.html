@@ -63,20 +63,26 @@ title: Startseite
   </div>
 </section>
 
+{% assign heute = site.time | date: "%Y-%m-%d" %}
+{% assign kommend = site.data.termine | where_exp: "e", "e.start >= heute or e.end >= heute" %}
+{% assign vergangen = site.data.termine | where_exp: "e", "e.start < heute and e.end < heute" | reverse %}
 <section class="section">
   <div class="wrap split">
     <div>
-      <p class="eyebrow">Nächste Termine</p>
+      <p class="eyebrow">Termine</p>
       <h2 class="big">Im Kalender</h2>
-      <p>Grün markierte Termine haben noch Gästeplätze. <em>(Beispieldaten für den Entwurf.)</em></p>
+      {% if kommend.size > 0 %}
+      <p>Grün markierte Termine haben noch Gästeplätze.</p>
+      {% else %}
+      <p>Die Saison 2026 ist beendet – die Termine für 2027 folgen. So sah die letzte Saison aus:</p>
+      {% endif %}
       <p><a class="btn btn-navy" href="{{ '/termine/' | relative_url }}">Alle Termine</a></p>
     </div>
-    <ul class="termine">
-      <li><div class="date"><b>20</b><span>Jun</span></div><div><strong>Kieler Woche – Gästefahrten</strong><br><small>Liegeplatz Seegartenbrücke</small></div><span class="tag gruen">Gäste willkommen</span></li>
-      <li><div class="date"><b>04</b><span>Jul</span></div><div><strong>After-Work-Törn</strong><br><small>Karten direkt an Bord</small></div><span class="tag gruen">Gäste willkommen</span></li>
-      <li><div class="date"><b>18</b><span>Jul</span></div><div><strong>Sommertörn Dänische Südsee</strong><br><small>mehrtägig</small></div><span class="tag rot">ausgebucht</span></li>
-      <li><div class="date"><b>12</b><span>Sep</span></div><div><strong>Arbeitseinsatz Winterlager</strong></div><span class="tag blau">vereinsintern</span></li>
-    </ul>
+    {% if kommend.size > 0 %}
+    <ul class="termine">{% include termine-list.html events=kommend limit=4 %}</ul>
+    {% else %}
+    <ul class="termine past">{% include termine-list.html events=vergangen limit=4 %}</ul>
+    {% endif %}
   </div>
 </section>
 
