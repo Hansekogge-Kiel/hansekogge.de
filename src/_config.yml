@@ -16,3 +16,6 @@ exclude:
   - Gemfile.lock
   - vendor/
   - README.md
+
+# Entwurfs-Banner oben auf jeder Seite. Für die finale Seite auf false setzen.
+draft_banner: true

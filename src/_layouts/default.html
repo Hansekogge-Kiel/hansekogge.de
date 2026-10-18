@@ -10,6 +10,7 @@
 </head>
 <body class="{{ page.body_class }}">
   <a class="skip" href="#inhalt">Zum Inhalt springen</a>
+  {% include draft-banner.html %}
   {% include header.html %}
   <main id="inhalt">{{ content }}</main>
   {% include footer.html %}
