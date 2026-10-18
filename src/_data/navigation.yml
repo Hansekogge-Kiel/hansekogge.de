@@ -15,6 +15,16 @@
     - { title: Der Bau, url: /schiff/bau/ }
     - { title: An Bord, url: /schiff/an-bord/ }
     - { title: Liegeplatz & Position, url: /schiff/liegeplatz/ }
+- title: Geschichte
+  url: /geschichte/
+  children:
+    - { title: Überblick, url: /geschichte/ }
+    - { title: Zwei Vereine, eine Kogge, url: /geschichte/vereine/ }
+    - { title: Bau & erste Segelversuche, url: /geschichte/anfaenge/ }
+    - { title: Chronik 1991–2021, url: /geschichte/chronik/ }
+    - { title: Fahrtziele, url: /geschichte/fahrtziele/ }
+    - { title: Die Koggen-Familie, url: /geschichte/koggenfamilie/ }
+    - { title: Kultur & Veranstaltungen, url: /geschichte/kultur/ }
 - title: Fahrten & Buchung
   url: /toerns/
   children:

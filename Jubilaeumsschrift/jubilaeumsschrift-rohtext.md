@@ -1,4 +1,5 @@
 # Jubiläumsschrift – Rohtext (OCR)
+
 Automatisch aus 86 Fotos der gedruckten Broschüre erkannt. **Muss vor Veröffentlichung Korrektur gelesen werden.** Reihenfolge = Reihenfolge der Fotos (Dateiname), nicht zwingend gedruckte Seitenzahl.
 
 ---
@@ -2400,1120 +2401,1105 @@ _(kein Text erkannt – vermutlich Bildseite)_
 
 ## Foto 022 (PXL_20261018_133217173.RAW-01.MP.COVER.jpg)
 
-JNIOM Bulyaseyy Ju sa J4aB S66L ay
+n kurzer Stopp
+stadt eingelegt
+ahres erstmals
+"lagen
 
-Bozuiy saiyeloßlo | sap
-!unf uap uı Sıq yaıs aIp 'ayoeg aßipueayne
-aul® -— uePIem Inegeb uaßunyejsian
-seyaß jduny uap ul uajssnw 1849907
-aM Sp UI yIy9S sep wey JsqiaH wj
+en ausgesehen
+egleitschiff. Die
+ıde Kulisse und
+Hanse in der
 
-uopınMm JÖnyoesuisag
-usyeyosuaßısjaßag
-usssejoßuis „dwnisyıyas
+ab es eine
 
-usjsbiusm we
-aıp em
+Die ersten
+'-Shirts waren
+' war nicht so
+einer Einheits-
+te eher durch
+ist weniger
 
-usp u! yoel} Jap 'qeiuejsyoyaS usp yaınp
-SSep "JeM PUNIG JEyauzyesnZ ulg "SIqneus
-jyaıu SqnelyaS Jaula nequıg3 uap aBBoy
-Jap wuoyduwny Ip ep 'qainuejsyoyas
-UaUIS In} yONJayDS yaıs paIıyosjus ueyy
+„Die Crew
+man sie nicht
+n wie Du und
+lich für dieses
+it des Skipper
+'orstellung der
 
-JÖNysIsyonJagq ayıyaossnqwnjog
-Jap usIneqypen J2p Bunssisuojoyy Jap
-NW suneyy uayosıueds Jop uaßunıyeu3
-uspınm yony "eIsuesyansiaA-negyıyas
-JeßinqweH Jep ı2q eßunysaldsag
-usj21]| wWepJegny eBBboy Jauıa
-ı0q geiuyuejolduung usp ssqn seyem Blor
-uor Jaglewoldıg Ip pun [8)SOJ ONEH
-IQ J0SS3JOJJ-Iny9sySoyydeJ USP yaınp
-jeueysbunwons Wwı ueßunyansıejun
-ıgep uspınm usßozequıg "BunssisuojoyN
-aP Ay 9ıp Wn uauoıssnysiq
-so geb Isyoeunz "usıno}y90H jne »BBoy
-‚ap Bunssisuogoy nz uaBunyasagioy\
-aıp Usyel Ayelgeysazuım wi
+r Gdingen und
+Heimat. Denn
+Internationales
+JG, die Carl-
+ine gemein-
+internationale
+ılentwicklung -
+sich für einige
+n, zu einem
+teilnehmenden
 
-ge uosıeg aBuyelssip aıp usyapun) uueu
--J91Z IN UoA Yyejslazy9oH ap WaIOpUe
-yeyun 'sJuang-sabe] aayaw pun JOSIOY
-ypeu usBepassey\ UOp NZ Yyey auıg
+ht müde
 
-JOSSEMSH ayasımı
+Nationen auf der Kogge ein
 
-ul Ppunsßlogping uap sn = re
-pun AardurgoyAn yeu Sogiasıe,
-AQ/epINsoy ısan se Buß puejasg
-Puny "WOoUBWWoS usiasun m usjayejs
-Sne yop von uaßeyaßum Joßımsajyag
-uep 199 JejBag „Jeulspow* Jaya sie sun
-Jim ueyanusseld Jewaßlez zueb JyOIN
+Drei spannende Tage waren das für
+uns. Afrikaner, Chinesen, Russen,
+Amerikaner, um nur einige Nationen zu
+nennen, mischten sich auf der Kogge und
+trugen zu besonderen Begegnungen bei
+Zum Beispiel sollte jede Nation etwas
+landestypisches, meist musikalisches,
+vortragen. Und da wir Koggianer nun mal
+Deutschland repräsentierten, mussten wir
+natürlich auch dran glauben
 
-"uaJem SBowuajun uajseg, yw yoıdey
-‚yer wapef un aim Jyongaßsne “um ‚op
-ul 'ay9oMm Jajaıy Jap yı sa Buıß yayayı
+Weiter ging es mit der Kieler Woche, in
+der wir, ausgebucht wie in jedem Jahr,
+täglich mit Gästen unterwegs waren.
 
-usqneß uejp yone yoıunyeu
-JM ueJssnW "uayanuaseuda, puejyosinag
-jew unu Jeueıßßoy Jum ep pun 'uaßesuon
+Nicht ganz zeitgemäß präsentierten wir
+uns als eher „moderner“ Segler bei den
+Schleswiger Wikingertagen. Von dort aus
+starteten wir unseren Sommertörn Rund
+Seeland ging es über Roskilde/DK
+Falsterbro/S nach Nykebing/DK und
 
-sayasıeyisnw jsıaw 'sayosıdäjsapueı
-sem3 uonen apel aylos jeidsıeg wnz
-199 ueBunuBaßag UsIBpuUoSag nz uaßnn
-pun »6Boy Jap ‚ne yoıs uayyasım 'usuuau
-NZ usuoNeN abluls Inu wn “oueyuauy
-"usssny ussaulyg “leueyiuyy sun
-in); sep usiem abe] apusuueds ıa1q
+zurück über den Guldbor: sund i
+heimische Gewässer. 3 3
 
-u 366oyY Jap jne uauonen
+Eine Fahrt zu den Wassertagen nach
+Korsor und mehrere Tages-Events, unter
+anderem die Hochzeitsfahrt von Ulli Zier-
+mann rundeten die diesjährige Saison ab
 
-apnw u
+Im Winterhalbjahr liefen die
+Vorbereitungen zur Motorisierung der
+Kogge auf Hochtouren. Zunächst gab es
+Diskussionen um die Art der
+Motorisierung. Einbezogen wurden dabei
+Untersuchungen im Strömungskanal
+durch den Fachhochschul-Professor Dr.
+Harro Postel und die Diplomarbeit von
+Jörg Walter über den Pumpjetantrieb bei
+einer Kogge. Außerdem liefen
+Besprechungen bei der Hamburger
+Schiffbau-Versuchsanstalt. Auch wurden
+Erfahrungen der spanischen Marine mit
+der Motorisierung der Nachbauten der
+Columbusschiffe berücksichtigt
 
-uapuaWwıyaull®)
-wauı® nz U
-abıula IN} Y9IS
-- Bunyoımyuslt
-Sjeuoneulaju!
--uswaoß aut
-„ed ap OC
-ssjeuonNeulajuj
-uuog ewisH
-pun usßuıpg }
+Man entschied sich schließlich für einen
+Schottelantrieb, da die Rumpfform der
+Kogge den Einbau einer Schraube nicht
+erlaubte. Ein zusätzlicher Grund war, dass
+durch den Schottelantrieb, der flach in den
+Schiffsrumpf eingelassen war, die
+Segeleigenschaften am wenigsten
+beeinträchtigt wurden
 
-Jap Bunjja}sıo,
-Jeddıys sap yı
-sasaıp ın) yoıl
-pun ng am u
-you Sıs uew
-MAI lg“
+Im Herbst kam das Schiff in die Werft
+Löcher mussten in den Rumpf gefräst,
+Verstärkungen gebaut werden — eine
+aufwändige Sache, die sich bis in den Juni
+des Folgejahres hinzog
 
-JoBıuam si
-yoınp Jaya 9
-SEITE BEINE)
-OS Jyoıu JeMm ı
-usIem syIyS-j
-uslsı9 ag
-
-aus so ge
-
-pP u sur
-Pun assıny apı
-Ag Yıyosyaıda
-layssaßsne ua
-
-usße|
-Sleugsio sayye
-Walohun jpey
-4doyg Joziny u
+Ab 1995 geht es mit Maschine weiter
 
 ---
 
 ## Foto 023 (PXL_20261018_133227430.RAW-01.COVER.jpg)
 
-us
-nV
-ını
-/D)
+if
+p waren unsere guten Schleppe
 
-°q
-np
-oß
-un
-18
-31
-q
-2)
-3p
-Ip
-N
-2J
->
+Karl und seine GC
 
-je
+wahrsten
+rn a en voraus ...
+Sinne des Wortes ihre Scha Se
+das Großereignis Motor- und az
+einbau wurde von einigen We I
+tropfen begleitet. Allen voran der Abschie
+von Karl Kristandt und seiner Gotland, die
+uns all die Jahre zuvor so sicher durch
+(Gegen-)Wind und Wellen führten. Wenn
+wir auch die Kogge jetzt selbständig, ohne
+Begleitschiff durch alle Situationen manö-
+vrieren konnten und die Organisation sich
+um einiges vereinfachte, es ging ein Stück
+Koggengeschichte verloren.
 
->q
-ın
+Der Einbau der M
+als nicht
 
-sauowps U UENgENS pun  Nelodag
-jm uajaıl Iuoepaq SSSerojunaneypun?
-jyaw oswn WU INJEP Joge Ypde nz Bar
-yauıg 'veßuejeß nz Voreyiawayg ST
-zum uap usbaß Uoneyxnd on gu
-vaem ayonsıay lomz 'ıyey Syosıuung
-aua Spınm SI „Ueneylswang leg“ 9ı
+endlich soweit
+großen Moment die
+Starten doch mit
 
-jem az Bem sespıon aıp ine SEM
-vn U IN WEISS Lunz SBbay ap yon
-‚one 'WOL-DU9 Jop pun ayaoyy J8jaıy
-ap uNynezep UOIÖIO) Yewsßsuonpen,
+verabschiedete Sich
+Einspritzpumpe «
 
-Sulydseyy WW G66L Iunf 02 av
+Maschinen zu
+einem Knall
+Steuerbord-
 
-&IU99Y y90p
-2 opey ıegep - „yIyoS sep yoı alenejs
+Eine groß
+einmal wied
 
-Mep ‘yensiesseyy ueyıeıs uauıe
-ey yoy“ ‘Bunssyleyıg any Byney 21ß10sS
-Faluonyun; geuuy sep eım ‘Bunsey.3
-SIEWIH \uopusag yoısıßloye „auyaseyy
-un Aye4* ajsıa sıp pun uayıayuıd
-Soyjeuey uep ul sun JIm uBJUUoy
-Su Suyng aıp ueqn sojwelgo,d
-Önuyny yoeu usjseg9 usjesun
-Au Hyejego,g aıp yone wepyaBu
-fun sejle ayddeyy se soqy leysepuosed
-Aus Veyeysaniye, wauyı ul HOIOUEARA
-ei SI abhoy aıp Y9oP ‘anab swu}
+artige Aktion, die, wie So oft
+und last p
 
-Kolps yoByosion HYNY Jap ouaaszun
-pP ‚ne SYey 13 'sdouy JewllH sjaddıyS
+er das Impr,
+ut not | 'Prov
 
-$asun -jgpoyas @!P
-HyezussjÖunf-je}}
+f auf dies
 
-ea SI uayıauuıo jeıy yoeu jenngsune
+Sationstalent
+Menhaj east den tollen Zusam
 
-= J8184-yoN-aJyer-001 n m
+Gazu, dass em Schiff z
+i no,
+gefunden wen am gleichen Tag Ergatz
 
-"euey; uep un jzjasaqion SU
+redend, am gay. DiESer Wurg
+Eingebau m gleichen Tag 28 Selbst.
 
-Ira
-2
+t A
+korken ung en Knallten die Sept
+urde j >
 
-Slılal
-IEYEHEN
+eigte, führte
 
-UNE
+anne N- Osram
 
--Ploganayg Sdundzyudsurg
+s vollbesetzt in den Kan
 
-AP yo 5
-Napaıyo
-Ileuy weus juw Yoop "
+wir UNS 00-Jahre-NOK-Feier
 
-nz UauIyoseyy AP Yuawo: 8%,
-u N } N
-\ uagoı6
-naD ne usjayem Ay lamos ysıpus
+Alkors,
 
-uoßesgeug, yone
-ySınpep pun uaßunsaßgzigy, vaypısyıyez
-YOeN "yosneweigoydun zue6 you sıe
+REN Von
+ZUNG. h Kiel einreihen, £
+ittel nac S war
+Bun hottel-Jungfernfahrt Unsere,
+f €
 
-UDIS Some uauıyoseyy Jap nequıg jag
+ar Knops. Er hatte auf
+Sr KVAG vorsorglich cc
+mal geüpR doch die Kogge isn
+einm ntlich in ihrem Fahrverhalten ing
+De sandaniält Aber es klappte alles u
+nachdart auch die Probefahrt mi
 
-"uaroyan ayaıyossßusßßoy
-MS UI Bulb sa "ayyoejuissan saßıuıa un
-DIS uoNesiueßyg aıp pun uaruuoy uaısun
--QUeW uBuoNenJS Sjje yoınp yıyosyaıdag
-auyo ‘Bipuejsgjas Izyal a6B0oy aıp yone m
-uuaM 'usHyn, uajleyı pun pumy(-us6ag)
-yaınp JaysIs OS JoAnz auyer aip |je sun
-Ip 'PUE09) JBUI9S pun Jpuejsuy Hey uon
-paıyasqy Jap uelon ualıy Yayalbag uaydon
--SInuuyaM uaßiuIe uon apınm negung
--[@poyaS pun -I0J0W swubla1ag0,9 =
-" sneJon UNEYOS alyı SEHON SOP a
-uajsıyem WI UaHaMm assıublag 2909
+isten nach Aukru
 
-6) Aus pun WEN
+seren Gäs , r A
+Drablamlog über die Bühne ging,
+konnten wir uns in den Kanalkors
 
-onYı
-yaddaııps uaynb ayasun UaJEM ON
+inreihen und die erste „Fahrt unter
+einge erfolgreich beenden. Hilmars
+Erklärung, wie der Antrieb funktionier
+sorgte häufig für Erheiterung: „Ich habe
+einen starken Wasserstrahl, dami
+
+steuere ich das Schiff‘ - dabei hatte er
+doch Recht?
+
+Ab 20. Juni 1995 mit Maschine
+
+„Traditionsgemäg folgten daraufhin die
+Kieler Woche und der CDG-Törn, bevof
+Kan die Kogge zum ersten Mal in ihrel
+
+Emerhaven zu gelangen. en
+Zuscha, Dat, aber dafür mit umso, IE
+dort wefinteresse bedacht liefen
+
+nes
+IN und e lebten ein schöne
+Segel Von. rlebten ein
+
+Gli
+ruf
+Au
+ein
 
 ---
 
 ## Foto 024 (PXL_20261018_133229452.RAW-01.MP.COVER.jpg)
 
--y2oH jewue
-Loyss se uuey
-a ul yony
+Ana
 
-rz
+in den Kana
 
-usgaß Jassem
+NOK-Feier Be
+el einreihen. Es wa
+ifernfahrt unseres
+ps. Er hatte auf der
+G vorsorglich Schon
+ı die Kogge ist ja
+ı Fahrverhalten eine
+es klappte alles und
+e Probefahrt mit
+ı nach Aukrug
+die Bühne ging,
+in den Kanalkorso
+erste „Fahrt unter
+>h beenden. Hilmars
+Antrieb funktioniert,
+heiterung: „Ich habe
+Vasserstrahl, damit
+hiff‘ - dabei hatte er
 
-susddey
-uus
+95 mit Maschine
 
-abBoy
+folgten daraufhin di®
+der CDG-Törn, bevol
 
-ınz yols ‘ey onaıL ip Bei ueßnnay
+m ersten Mal in ihref
+rdsee wagte. Ziel wa
+‚ven‘. Es wurde ein®
+zwei Versuche waren:
+‚en gegen den WIN N
+\ zu gelangen. Eur
+dafür mit umso me"
+, bedacht liefen WI!
+lebten ein schöne®
 
-wınz sıq sun Jep oneg ueypsuyg Jeddis
-yey9saß y90U Jsuos seyy\
+Eine Fahrt mit „Wunderländern”, einer
+Hamburger Seminargruppe zu den
+Wassertagen nach Korsor rundete die
+diesjährige Saison ab
 
-- yajnıjne „Lauamosser] pun uajaıdsıaya7]
-uoyosppau Wu UeSUSWWESIIg UayDI
+An Einsatz mangelte es auch im Herbst
+nicht. Einige schwere Stürme zwangen
+uns dazu, das Schiff engmaschig zu
+bewachen und abenteuerliche Rettungs-
+aktionen zu starten So gab es an einem
+Tag Wind aus N-NW bis Stärke 11. In der
+Förde war Hochwasser ca. 1,50 m über
+Normal aufgelaufen und die Gefahr, dass
+die Kogge sich auf die Dalbenstummel
+des Nachbarstegs setzen und sich damit
+den Rumpf aufschlagen würde, war groß
+Doch wieder einmal trafen über eine
+Telefonkette genügend helfende Hände
+ein, das Schiff sicher zu vertäuen. So blieb
+uns ein Schicksal wie das der „Seeadler‘
+gottseidank erspart, die an diesem Tag
+durch „Kontakt“ mit der Spundwand stark
+beschädigt wurde.
 
--yoyj" wInz ‘jsuaipsyagquy Wunz yes jewu
-useinr SIOS Iyaaıey\ JusWwen we So
-be] 'uowey Jsuapsyaguy/‘ winz abluam OS
-Inu WwnJem ey Jyolu JeB sem sun uPeloB
+Wir überstanden diese Situationen zum
+Glück unbeschadet, so dass die Kogge
+ruhig ihren Winterschlaf halten konnte. Das
+Aufbauen des Gestells glich einmal wieder
+einem lustigen Puzzle, es wurde viel
 
-je apınm sa 'eizznd WeaNSNI wauıs
-Jopaım jewurs y9ıB SISDH SOp Lenequny
-seg 'SUUoy uayey yeyassaguyy Uaayı Bıyna
-abBoy Sıp ssep os epeypsaqun PONIO
-wınz uaUONeN„S Ssalp uSpPuUEISsIsgn AM
+gelacht. Uns war gar nicht klar, warum nur
+so wenige zum „Arbeitsdienst‘ kamen. Lag
+es am Namen? Vielleicht sollte Jürgen
+einmal statt zum Arbeitsdienst, zum „fröh-
 
-"opınm Jbipeyasaq
-yıejs Puempunds Jap Jılı „MEILUOY“ yauınp
-Be) wessip ue aıp ‘wedsıo YuepIosNoß
-„ojpeaag" Jap sep aım jeSYOIyOS ula sun
-qaılq OS 'uaneyaa nz Jaypıs yIyas sep 'uI®
-apueH pusjjey pusßnusß syayuojalaL
-auIa Jeqn UsjeN jewule Jopsım Y2OQ
-016 sem 'apınm ueßeiyasjne ‚duuny USp
-}Wep yoIs pun uszas sbAJsIequVeN SOP
-jawwungsuegeg @ıp jne yoıs Boy Alp
-SSep JYE}39 SIp pun uajnejoßjne jeWLION
-ısqn w 05‘) 'eO Jassemy2oH JeM OpIQ4J
-Jop u] 'LL @URIS Sıq MN-N Sne puım Bel
-wauıs ue sa qeß og 'uayiejs nZ uauonye
--sbungay aydınanayuage pun uaypemadg
-nz Biyosewßus yıyas sep 'nZep sun
-uoßuemz auunIs auamyos adıulg DIL
-1sqJaH wı yone sa ayabuew zyesug UV
+lichen Beisammensein mit neckischen
+Leiterspielen und Lassowerfen" aufrufen ..
 
-ge uosieg obuyelsaip
-aıp ajapunı Josıoy DEU uabenosseM
-uap nz addnıbseumuss JadınqweH
-aus '.WIEPUBHEPUNM” MW yye4 Sul
+Was sonst noch geschah:
+Skipper Chrischan Bauer, der uns bis zum
+heutigen Tag die Treue hält, stößt zur
 
-guoyps UNO ualgaı
-uajaıı I49eP2Q ©
-wu oswn yw InNJep
--uabuejoß nz ı
-uop uaßaß us
-uaJem ayonsıay\ !oMZ
-aura apınm 53 "„uant
-jem 10ız -a)bem 99spı
-jasyı ul JEW uajsıo W
-jonag 'WOL-909 JP
-ap uIyyneJeP u610}
+Kogge.
 
-s
-um
-ya
-vaulg
-puıM
+Shit
+happens
 
-auıyoseyy Wu S6
+Auch in Kiel
+kann es schon
+einmal Hoch-
+wasser geben.
 
-19 ayey Iagep - „Yu
-Nwep 'Iyeusiosse,
-sgqey ya“ :Bunsayıay.
-Yeıuonyun; qauuy
-SIeWIH "'uspuaag y<
-Jsjun Ayey“ ajsıo
-Osioyjeuey uap ul
-‘Bul6 suyng aıp
-Bniyny yveu UL
-Aw yyejagosg 9
-Pun sajle ayddejy so
-SU usyjeysanıyez ı
-ef ısı abboy ap U
-es yoıBıosion 9
-RS INe oyey 13 'sdc
-un Ayezusgjl
-
-S3 "usyıauuıa jo
-
-uon 5
-2194-4JON
-SSioyjeuey uop ui
-
-es
+21
 
 ---
 
 ## Foto 025 (PXL_20261018_133240535.RAW-01.MP.COVER.jpg)
 
-136
-Iyo
-wu
-ge
-Iop
-IS
-ey
-1m
-21
-74
-un
+1999|
 
-VOPUNYO Jyolu yoou ef aßßg,
+Das Jahr begann, wie so oft, damit, ‚das
+Schiff auszupacken und „sommerfrisch“ zu
+machen. Doch dieses Jahr kam noch eine
+besondere Arbeit hinzu. Der Mast hatte sich
+gedreht, so dass das Dampferlicht etwa 25 °
+nach Steuerbord „schielte“. Dies machte uns
+weniger Sorgen, lief die WaschPo doch
+nicht immer mit einem Winkelmesser in den
+Taschen herum. Schlimmer war, dass das
+Großfall im Scheibgatt verkantet lief. Es
+wurde zum Bollhörnkai verholt und vom
+dortigen Kran der Mast gezogen. Dann
+konnte (nicht mehr ganz so mittelalterlich
+wie beim Bau) mit Säge und Elektrohobel
+der Mastfuß entsprechend angepasst
+werden. Die Münze unter dem Mast war
+unversehrt, wurde geputzt und wieder
+zurückgelegt. Inzwischen wurde das
+Grummet für die Jolltaue erneuert, die
+Blöcke neu eingespleißt und der Mast mit
+Ovatrol konserviert.
 
-N El
-el aq Yaynp aD) @pınm
-Pig Wı yalU JeßupBiopny jeg 2090 oda
-uuam Be IE Jon so pum Buaımı Ft
-Kr u ‚Di, Pün "Pia un puewer I.)
-vops ISI EQ" :ejuglie yny En
-ep Jopaım Jam pun Jewwı ' Be
+Nun konnte die Saison also starten. Sie
+lebte in diesem Jahr von Kurztörns und
+Stegveranstaltungen. Auch Lukullisches
+kam nicht zu kurz. So wurden zum Beispiel
+= Be von Törns erstmals der „Kieler.
+Bun von KuWi oder auch ein „Kieler
+ee Sockti präsentiert. Geburtstage,
 
-le 1) SsIomIapuaynay Pe
+fen, Präsentationen, Filmauf-
+nahmen - es gibt immer einen Grund, gut
 
-ae SSmEmW  purs PR
-ve sWESJyasWeJ pun wg uoypsoren
-ap JapaIm geß se pun 'ules nz sbamuayun
-yewsupg u SBBoy JOP Aw ayooy auıo
+gelaunt für eini
+zusein. "9° Stunden auf dem Wasser
 
-„ Yone 86Boy eıp pun - Jyoıp ayaııo.
+Der erste längere Tom führte uns zum
 
-Sasun JIM UaypewWw ‘uajlos Üben en
-amoyy ssep 'pum Jopaıyosgeian Bejsopung
-won Bunupsosay aıp uusy“ :usssejaß zueß
-SSHOMUE }sIUoJyg Jaq 'Ios yoıpuıapjamuın
-Yop sep ssep syomyow Jsqnıep
-08EL uon sysloyeuibuo Jap Bunßnysisag
-Deu ypIs Jop 'uausH uaule ıny yone og
+Da konnten wir natürlich nicht nein sagen
+nun an ein recht
+dort. Einlaufparade,
+routiniert
 
-eled yomuy auıa sajle ıny
-usgey um 621 JaId Jap ue yonjsswnasnyy
-Sje ınu sa go Jepo 'uuey ujeBas yone Bug
-wesaIp yw uewW go 'WopUnm ypIs alapue
-Isı SJSIyzJey9g Ip unu om 'uoßey, ueeny
-usgosBb yw pun ujawiun) Jaydwepusjelid
-wop „ne pPusjyensapnay, woIıs Jepuıy
-unu qO "Bunßnsnieg Inz pung Japaım
-Jowwı se Jgıb dıys usdo wıeg apeısg,
+und waren von
+regelmäßiger Gast ;
+Gäste-Törns und Open Ship,
+wurde das Programm abgespult.
 
-‘yndsoßge wwe,ßolg sep apınm
+Gerade beim Open Ship gibt es immer
+wieder Grund zur Belustigung. Ob nun
+Kinder sich freudestrahlend auf dem
+Piratendampfer tummeln und mit großen
+Augen fragen, wo nun die Schatzkiste ist,
+andere sich wundern, ob man mit diesem
+Ding auch segeln kann, oder ob es nur als
+Museumsstück an der Pier liegt, wir haben
+für alles eine Antwort parat.
 
-‘dys uedo pun sWeL-@SKO
-i jseg Jsdrgewiehs
-uon usayem pun
+So auch für einen Herren, der sich nach
+Besichtigung der Originaltoilette von 1380
+darüber mokierte, dass das doch
+umweltfeindlich sei. Der Chronist antwortete
+ganz gelassen: „Wenn die Verordnung vom
+Bundestag verabschiedet wird, dass Möwen
+Windeln tragen sollen, machen wir unsere
+Toilette dicht - und die Kogge auch.“
 
-Yalunnoı
-'epesedjneiug Op
-ps) ue ue unu
-Uaßes ulau Jyoıu yoıumeu Jum ueJuuoy Ed
+ee zu sein. Und es gab wieder die
+Ba en Film- und Fernsehteams an
+Filmhasn oglaner Sind mittlerweile alte
+Are ‚wenn auch unsere Haupt-
 
-ur
+darin besteht, möglichst unsichtbar
 
-an WO jne uapun)g blu ıny Mae
+kriech, ; 5 5
+bedienend, einge die Leinen
 
-Punıg uauıs Jawun Jqıb sa - uawuyeu
-5 "UEUONEJUaSBJ(g Uoyanuaunı
-SBeisungag Lenuaseid „'EPPOI aypo; r
-J2jaly“ ul® yone Jopo My uon Pe
-JO” JEp sleugsio sulo] uon vawyey =
-ledsiog wnz uapınm og Zuny nz Hplu wey
-Sayasımyn] yony "uaßunyersuesandang
-Pun swogziny uon ıyer wasarp uı ag
-AS |UOHEIS Osje uosieg aıp aluuoy unN
+te% i „K €
+Skip erg Ni so Ivan ae vom
+auftauchen dam dergänger nicht im Bild
+Wurde fü en. Die Fermsteuerung
 
-"WOILIaSUoN JoNeaAO
-Aw jseyy Jap pun IJleidseßuls neu ayogıg
-AP 'yanawe aneyjor @ip un) jewunıg
-sep apınm uayosımzul YBeoßyanınz
-Japsım pun Yzındab apınm 'uyassanun
-Jem Jseyy wap Jojun ozunyy all "uapıam
-Issedaßue puaypaıdsua ynpsew Jap
-jegoyonya3 pun des zu (neg wıaq au
-yoıayejopıı os zued ya Ju) Juuoy
-uueg 'uoBozeß Isew Jap ueIy uedILop
-woA pun jloysaa 1eyWIEUNog Wunz apınm
-s7 you Aueyıen Nedqaups wı ED
-sep SSEP EM JoWwıps "Wine UEyoseL
-uEP ul Jossowpeyuyy WEUD Lu Jar Ju
-op odipsem ap ya "ueßlog Joduam
-sun ayupew seig "„Nalyps’ prOqaNaIS peu
-„SZ emja Iyieydueg] sep ssep os TuaPeB
-yoıs ayey Jseyy Joq 'nzuy Nacyy alapuoseg
-auıa yoou Ley Jyep sasaip YO LayDeLL
-nz „psupauıos“ pun uaxpednzsne YUDS
-sep 'ywep 'yo os aM ‘uueßag yer SeQ
-
-ı | O9H6H
+r die ;
+Kogge ja noch nicht erfunden.
 
 ---
 
 ## Foto 026 (PXL_20261018_133241937.RAW-01.COVER.jpg)
 
-Gr am pre en pen =] | RER" u
+Oft sind wir im Mittelalterzentrum in Nykobing
 
-uritbegn
-ne am ahnt
-ET EN
+einer Sendung im Rahmen der Kieler
+Woche, aber auch in historiengerechten
+Produktionen wie „Erbe der Menschheit-
+Lübeck“ zur Geltung gebracht. Eine Fahrt mit
+dem Hamburger Tross in seinen authenti-
+schen mittelalteriichen Gewvandungen nach
+Portus Sanctus (wer errät's?) brachte uns
+wieder zurück zu unserer eigentlichen
+Aufgabe, das Mittelalter zu präsentieren.
 
-1o31goly
+Der Sommertöm führte uns über Faborg
+und Mölle nach Kopenhagen. Auch in dieser
+Zeit fanden viele Open Ship Aktionen und
+Tagesfahrten statt. In Kopenhagen erlebten
+wir das Finale des diesjährigen Tall Ship
+Races. Weiter ging es über Skanör und
+Stubbekebing nach Nykobing, um dem
+dortigen Mittelaltercenter einen Besuch
+abzustatten. Eine andere Welt! Ein
+mittelalterliches Dorf, eingebettet in Natur
+ohne Großstadt drumherum, mit authentisch
+gekleideten Menschen, die das damalige
 
-er
+7
 
-13931d5 Hau
+Für die HANSEKOGGE nach Maß gebaut!
 
-"" Y66WLE .N UI Sun yes OG
+Leben zelebrieren. Wir wurden begeistert
+empfangen. Dorthin zu kommen war nicht
+gerade leicht, das ohnehin flache
+Fahrwasser war gepflastert mit schweren
+(von Katapulten dorthin beförderten)
+Feldsteinen, die es zu umschiffen galt
+Nachdem diese Hürde geschafft war, folgte
+die zweite: eine minimalistische
+Klappbrücke, zwischen Schiff und Pfeiler
+passte gerade mal ein kleiner Fender Doch
+auch diese Herausforderung wurde
+bravourös gemeistert
 
--=- JUILUMUOS JOSSe/y\ Wul USNOY
-Jabıgop us lm sep 'yIyOS U Jon |ONIHY
-ug ‘Bunsodwg nz ssejuy sun In) geb
-YyoIaJoß zI0)S LINZ UauI> Uap ser Juyemus
-aıy weue yWw „I3931dS" WI Ualem
-a auyewus nz you SO uBb apes auıo
-"el yoy 'IagJon Jopaım UOSIES 8SEP YONE JEM
-uoyps pun ‘swojsaße] sblule yooN UaNue
-Bamwisy Uop Japeım uoyas uayssnw Jun
-pun aqJon yop yaz ap Jem jaUyOS NZ [Ol
+Viel zu schnell war die Zeit dort vorbei und
+wir mussten schon wieder den Heimweg
+antreten. Noch einige Tagestörns, und schon
+war auch diese Saison wieder vorbei. Ach ja,
+eine Sache gilt es noch zu erwähnen. Wir
+waren im „SPIEGEL“ mit einem Artikel
+erwähnt. Was den einen zum Stolz gereicht,
+gab für uns Anlass zur Empörung Ein
+Artikel über ein Schiff, das wie ein klobiger
+Korken im Wasser schwimmt ...
 
-ajsıawaß soınoneig
-apınm Bunsspsojsnessy aselp ypne
-og Jepua Jaulapy uIe jew apeıab ayssed
-zolajd pun yıyos uayosımz "syongddeiy
-ayosysjewiuw sule :ejlamz @ip
-aybjo, "em yeupsaß apınH SSalp WEPLOEN
-eß uayıyoswn nz se ap 'uaWejspie4
-(uspapıgyegq UIyyop walındeyey on)
-usyamyps yw yelseydaß sem Jossemuye-i
-aypey uyauyo sep yalel @peıaß
-you Jem UBWUWOoy NZ UIyOC usBuejdıue
-yaysıaßaq uapınm JM "Umaugajaz uager]
+50 sah uns in N? 37/1996 ...
 
-inneqab yeyı YDeU 309043SNYH ap any
+DER SPIEGEL
 
-abjeWwep sep ip 'uaypsuayy usapIapjs6
-yosnuatpne yuu "Wnsaywunup Ipe}SJ0,9 auyo
-nen ul Jepageßum 'pog sayapayerapım
-u3 jleM Wopue ug uapejsnzge
-yonssg aus JAUDJayerspıN uabyop
-wep wn 'Sugexin peu Bulgeyaganıs
-pun sgueys Joqn se Buß Jsoyaıı 'Sey
-diys eL uabuyelssip sap eu, sep am
-uajgeue ueßeyuadoy u] Neis uanyejsaße,
-pun ueuonxyy diys uedo Sjeın uapue; voz
-Jasalp ul yony "uabeyusdoy peu ayloyy pun
-Bloge | saqn sun ayyn; WOHSWLWOS J0Q
+Srafansı
 
-"uayanusseud nz Jeyeranıyı sep 'sgeeiny
-usypınuoßıe Jalssun nz Ypnınz Japaım
-sun supeig (£SIEUS Jom) snpues SNUOGT
-peu usBUnpuemag LaypLENEIMMNU UPS
--NUSUNNE USUIBS UI SSOl] JeßinqueH WEP
-au Pye Sul yPeIga6 Bunyag Inz RAN]
--POyıpsuayy Jop aqız" am UEUOIDNPOId
-uoypSlsBUBULOHSIy ul ypne Joge UDOM
-Jaja) Jop LewWyey Wwı Bunpuas Ru
+Klobiger
+
+Massichinch der schen um 14 Marken
+on Ada Nanbeerkubeme und u a
+
+(| (ergangen Suhännen gt I Mate an)
+
+PT
+u ektatineaunn | [Ding 6o aniwertete Herr Janze
 
 ---
 
 ## Foto 027 (PXL_20261018_133249598.RAW-01.COVER.jpg)
 
-_—_@
+der Saison
 
-gssog YON-IOPIEMEg voweuuan tue. TeB
+h Damp hatte einiges zU
+‚d, hohe See - und
 
-(25 ap 'OIN Pun eut) uon Nozypon =
+Der Trainingstörn zu Anfang
 
-H ag
-I Jossey suı Ba, er
-|jne uuas Sep @oeIBeg Dun onaros
-3) ‚nequabBoy} Swyeugewsßunyeusgen
-sag Jep ue yongenyew S
+mit Abstecher naC
 
-auesy@gV SEP JONET em uNBoy =,
-wog ANEIU3 1OP Yezypoyiagıg aa
+bieten: starken Ostwin
+ein herrenloses Boot wurde gesichtet Die
 
-'yeyosaß yoou Isuos sem
+von der Seekrankheit gebeutelte Mann-
+schaft verständigte den Rettungskreuzer,
 
-"uopiom
-zesedyo} @UUOY [EIN Yoeu ugyeyyewiap
+der das Dinghi später barg
 
-ap uU SIq JESIEJ/BLIGEYAN UI wnyuaz
-RIERAN ISP Pun' Punsieng: Yseßjon,
-| san esıenpny Ip pun
+Doch das Hauptereignis des Jahres
+war der Sommertörn nach Danzig zur
+1000-Jahr-Feier der Hansestadt. Anfang
 
-PS Wep Sne Jayue
-dem uep pun »BBoy
-ap boz 13 aydeg Jeuaßıa
-a sBuipeje jewseig
-VspJem uowwou
-) öne PMEIUOY SYZOA
-— Ip JeznesysBungey
-aus nz Jyep WesaIp uı
-EN veyamz nz ayssnw
-® pun sojßjone Jem
-“dewen seqg 'syeH
-FUNAS sap Yalıyas wı
-Pnszuaypsımz apooJs
-Sebom pun apunw
-uns ‘Bisgoy ‘een P
-aM Yyepony @ıq N
+‚August segelte die Kogge unter Führung
 
-[3
+=
+ünter Grass diskutiert mit uns übe:
 
-= yanıaa gi
-2 Boy ep piog ue
-eds abe] aBiule apınm uaBUIP9 IPEIS
-Be SP um [IM IpeIS Jep yeyosleuned
-Br SP yany SINIH alyı yeyospomiom Jap
-Pin Öizueg jpejg Jop uejyoe,giagn pun
-Piog ve usem 'sbizueg uyog 'SSEIO
-“ung pun ysıluosiad siuowig @PI®H
-SNepIsgadhesiungy Ya nz HI Jop
-N By jpeg Jap “ulejsjo-Bimsal4oS
-u sap eBup,dwg un, WIONEId
-u VsBuipg) u) yone yojgds pun BizueQ
-u nal ey Ipejs Jep abbei4 JaP
- leyejsaßsne siewysie 'aBßoy @!Q
+von Ulrich Zie,
+a
 
-210g
+" die Rechtschreibreform
 
-voms
+BINZZEN
 
-WOLBKTIONSSIUHHN BIP 1aqn sun u Yan:
+@
 
-vz
+Die Kogge, erstmals aus:
+der Flagge der Stadt Ko mit
+Danzig und später auch in Gdin Nte in
+Plattform für Empfänge des vn als
+Schleswig-Holstein, der Stadt Ki Andes
+der zu Ministerpräsidenn
+Heide Simonis persönlich und fe
+Grass, Sohn Danzigs, waren a ünther
+und überbrachten der Stadt Dal Bord
+der Woiwodschaft ihre Grüße 7% und
+Partnerschaft der Stadt Kiel Bst die
+Stadt Gdingen wurde einige Tage it der
 
-Boy u
+an Bord der Kong
 
-= 1egigy, PruteBosu
-MW jjor ja
-\un Joyue;
-JM Sy eg,
+BF B vertieft.
 
-Un — N J8p ve GN
-Ida DıP Loypsuayy
-M nz u M 'Uahog
+4 Die Rückfahrt ü
+Hela, Kolberg, u
+münde und Wolgast
+stockte zwischenzeitlich
+im Schlick des Stettiner
+Haffs. Das Verwarpen
+war erfolglos und x
+musste zum zweiten Na
+in diesem Jahr zu einem '
+Rettungskreuzer der
+DGZRS Kontakt aufge
+nommen werden
+Diesmal allerdings #
+eigener Sache. Er zog d®
+Kogge und den War
+Pi aus dem Schel
+W und die Rückreise übe |
+en ‚Stralsund und dem Mitteiaker
+in Nykebing/Falster bis in de
 
-OSUBH Jap ıaq
-91 uueunarz yon won
+Heimatha, 5
+werden. fen nach Kiel konnte fortgesetZ
 
-DSIP SSEIO sejung,
+Was sonst noch geschah:
 
-Bunsyny Jayun boy aıp auabas ısnöny
-Buejuy Jpe)sasueH JOP ‚ora-.uer-000%
-ınz dizueg y9eu wWIOHEWWOS “u
-sayyer SaP sıußraaJdneH sep 420C
+Die Si
+Silberhochzeit der Eheleute Kogli.
 
-Seq zayeds Bug SEP pP
+Dr. Koali
 
-yeyos
-aznaysbunnay UP suöpumaan URL
-N ayanaqab HENDNIEDIESS ON I
-; una J008 a K
-Et] anpiea OR so uapels od
-pen? nn anBy dweg peu REN ‚ei
-einen Bueyuv NZ ugısbu
+und an war Leiter des Arbeitsamtes
+beschamungeblich an der Arbeis;
+bete; gsmaßnahme „Koggenbal,
+
+seinegt und begleitete das Schiff @#|
+
+N Weg ins Wasser.
+
+Die H,
+lochzei
+den Focnzeit von Tina und Nico, die SE!
+
+Famili
+gaben. Miliennamen Bewarder-von Bos®
+
+Ber
+
+K
+
+Korze
+Jahre 138
+Schiff
+
+6
+
+ —
 
 ---
 
 ## Foto 028 (PXL_20261018_133251175.RAW-01.COVER.jpg)
 
-ser 0004 bag) mar 20p EUCH MOON DO MP
-Ks ale 4 20004 op sauna pam prog ve va ;70 0BON Drang Op MN Beuuos UV
+Sidentin
+Sünther
+in Bord
+zig und
+uch die
+mit der
+e später
 
-bir ”
-Sızuegg Ss.ınyj yuunu 98504 .PPIM
+Kogge
 
-Ss ap wo], uasdur] uop any MODEL
+rt über
 
-1661 venöny 'z » ON:
+Swine-
+Wolgast
+anzeitlich
+Stettiner
+erwarpen
+und so
+seiten Mal
+zu einem
+er der
+t aufge-
+‚erden.
+jings in
+Er zog die
+»n Warp-
+m  Schiet
+eise über
+Mitelal 25
+is in den
+fortgesetzt
 
-JSUNAS
-yaıyıozus
-Iseßjom
--SUIMS
-san u
+jte Koglin-
+beitsamte®
+‚Arbeit®7
+oggenbat
+Schiff auf
 
-Boy
+KIELER EXPRESS AM WOCHENENDE + 2. August 1997
 
-Joyeds &
-Op yu
-SIp yanı
-Pun Sız
-Pıog ui
-Jöyjuns
-Uunuapıs
-Bun jar
-Sapue]
-Sie usß
-u ayue
-Yu joy
+nimmt Kurs Danzig
+
+Am Sonntag legt die Kieler Kogge ab: Mit ar Bord wird erstmals die Kieler Flagge Se
+de OB Norbert Gansel der Crew übergab. Fon 2%
+
+al
+in
 
 ---
 
 ## Foto 029 (PXL_20261018_133258427.RAW-01.MP.COVER.jpg)
 
-UOS
-SIE)
-wep
-pun
-"us
-asun
-in
+WOWARSIE 1998 Bericht von Jürgen
 
-am
-laly
-yo
+Karrock, den Kogge News entnommen —
+an einigen Stellen gekürzt und an anderen
 
-Jod
-Zzıon
-snw
-ds
-8
+ergänzt
 
-ug
-Jem
-Sue
-‚og
-se9
-sue
-jEH
-ag
-224
-ulay
-uam
-pne
-nz
-ed
-uonr
-Jod
-ISO
-peu
-[77:72
-Bas
-Önrf
-49S
-N\
+inktlich zum 1. Mai war
+die Kogge für die Saison
+Zwar war der
 
-i.2y90M J2JaIy" Ip 'uSpUeISJOAag
-jogy Suey SBeL uneu jewuie
-japaın SSEP 'OJSSNM Jepal uuap "wesßuej
-gunuueds @Ip YOIS eusßlejs uueg 'uaınoy
-‚sabe] weßlurs Aw uueßeg junp Joq
+vorbereitet
+Zustand des Antriebs noch
+nicht ganz optimal aber
 
--uajnejoßue ujsddey pun
-aprou1ay03 LUEPINM usssap
-eis HUN) Meweurg
-weu ıyplu Jepie] ıayep
-wasaip ul SIENam UeßIsne|
-sap uaboem aIp 'sne yyey
-909 USNSUONIPeN syIelaq
-‚aasun Jıw Buejy leyy Jog
+dennoch konnte die Segel-
+saison mit dem Ansegeln, das
+über drei Tage ging und
+traditionell für Testzwecke
+und die letzten Handgriffe
+genutzt wird, eröffnet werden.
 
-"Boy ule Sjle In) Jem Uye
+Bereits einige Tage später
+konnte Bootsmann und
+Skipper Ulrich Ziermann seine
+Studienkollegen aus Estland
+an Bord begrüßen und mit
+ihnen einen Segeltörn in der
+Kieler Bucht unternehmen.
 
-ap pun jn6 sojle em opug
-we Joqy 'SyIOM UoBIEISNZ
-nu uusp „NoRBunf“ sep
-om ‘BO uSP Jean yone sa
-gb usßunumus Ybesahue
-woysbas aus un) yaıs
-ey pun +09 uoNelsueg
-se yaıs Syddndjus syamuanay
-Ppusßnr ayaınulauuan ag
+Jetzt ging es Schlag auf
+Schlag. Am 8. Mai war unsere
+erste Gästeexkursion, die
+noch unter leichten
+technischen Anfangsschwie-
+figkeiten litt. Am folgenden
+Tag bei weiterhin sommer-
+lichem Wetter, unternahm die
+Kogge einen Halbtagestörn.
+Am Nachmittag desselben
+Tages wurden auf einem
+Schnuppertörn mit unseren
+Gästen für die Visby-Tour im
+Augusl wesentlichen Details
+ür die Gotlandfahrt
+angesprochen
 
-uaoU nz Inb Jeyuejsio
-auyo yone — puegzzer auıa
-RM PIOg ue u 'beisungseg
-05 usuIe Jeyamıaßas
-Wauoyps ı9q Jim Uayala)
-ep joy uı SßeL ıomz Jopaım
-pesab sem 5504 ad
+( sale)
 
-apejs IpejsssueH
-usye 39p ul vn3eNn
-Jap yw usawwesnz sun
-USponussg,d pun nz usjdes
-um uspejeßuis uogI9}
--uUSjeH LOySIpSyeayıy WNZ
-eyy ayıyy sun uayey „epelS
-usjeH Joyy“ ulaaı Jap pun
-‚Speis selanpiy DV MC
+nebenbei. Es ist richtige
+tähnens-
 
-jiLJoWLUNy ue)spQ pun Mad UOA
-Bunßaydıay aıp wun Jopalm Jawıwı yaIs ap
-use aylajg Joseıp ue Yued usje\ Ham
-SUSUyENUS SJSPUOSSQ Jayep pun very
-SEN Isı sg aquagau 08 Y9BjUI® up
+Arbeit und daher besonders erw
 
-%
+wert. Vielen Dank an dieser Stelle allen
 
-vew jyoew “uaßı
-osag nz
+die sich immer wieder um die Verpflegung
 
-u nz Veldsuosen on oa a
-n OSIB4 GL un - 5
+von Crew und Gästen kümmern!!
 
-: 04 ‘Bun!
+nicht einfach so
 
-” ee ap euch a Ai
+Die AG „Aktuelles Stade"
+und der Verein „Alter Hafen
+Stade“ hatten uns Mitte Mai
+zum Mittelalterlichen Hafen-
+treiben eingeladen. Wir
+sagten zu und präsentierten
+uns zusammen mit der
+Usena in der alten
+Hansestadt Stade
 
-lalsanzıon
-Shieuages ap ıny a ne
+Die Kogge war gerade
+wieder zwei Tage in Kiel, da
+feierten wir bei schönem
+Segelwetter einen 50
+Geburtstag. Mit an Bord war
+eine Jazzband — auch ohne
+Verstärker gut zu hören
 
-Nneuyasis\ safe 1 lag
+Die vermeintliche Jugend-
+feuerwehr entpuppte sich als
+Generation 50+ und hatte
+sich für einen Segeltöm
+angesagt. Verwirrungen gab
+es auch über den Ort, we
+das „Jungvolk“ denn nun
+zusteigen wollte. Aber am
+Ende war alles gut und die
+Fahrt war für alle ein Erfolg.
 
-uapordsapun
-Yyejpuejjog ir id,
-SIE Leyoınuasam IsnBny
-wu! INO]-Agsıy ap in, uarseo
-uslasun Jim uoyaddnuyog
-weule jne uapınm saßey
-uegjassop Beyiwupen 17
-"WwoIssßejgley uauıs boy
-AP wyewejun Jopayy waypı
-awwos umyeyem 19q Bey
-uspuoßjo, wy A Ualaybu
--Oimyossbuejuy UaysIuyoa]
-uo}ysıa]ı JaJun y9ou
-IP UOISINYXaSISEOQ ajsıa
-S1asUn Jem 1eyy 'g Wwy BeIyag
-jne Beiyas sa Buß zyaf
+Der Mai klang mit unseref
+bereits traditionellen CDG-
+Fahrt aus, die wegen des
+lausigen Wetters in diesem
+Jahr leider nicht nach
+Dänemark führte. Statt-
+dessen wurden Eckernförde
+und Kappeln angelaufen.
 
-"uawyawelun Jyong Jejaıy
-Jap UI WIONSBSS uauıa uauyı
-yw pun usgynbag Prog ue
-puens3 sne usßajloyuaıpnıs
-aulas uuewerZz youın JaddriS
-pun uuewsjoog sjuuoy
-Jsyeds abe, blue salog
+Der Juni begann mit einigen Tages’
+touren. Dann steigerte sich die Spannung
+langsam, denn jeder wusste, dass wiede!
+einmal neun Tage harte Arbeil
+bevorstanden: die „Kieler Woche‘!
 
-"USPJOM JOUJ939 "pm Yzynuad
-ayußpuey uayze] @Ip pun
-ayamzIsa]| In; |PUONIPEeN
-pun Buß abe, !ap Jaqn
-sep 'uloßasuy wep Ju uosies
-bag ap UUoy y9ouuap
+V
+Sch
+Jug«
+segi
+geh
+näcl
+Ost«
+per
+von
+Pfac
+zu
+aucı
+wen
+kein
+Rec
+Die
+Hafe
+ansı
+Gäs
+Bor
+ansı
+war
+8 nie
 
-soge ewndo zueb yyaıu
+T
+Skip
+mus
+vorz
 
-yoou sqeuuy sep puejsnz
-
-‚ap em Jemz IAMUHQIOA
-
-uosıeg ap ın) aBBoy ap
-sem jeyy ') WInz yauıu
-
-wurde
-
-Ss uoßluıe ue
-
-B nyab u
-usJopue ue pun IzunyaD ar
-_ usWWLIoUNUe smon-@BBoy UP POLEN
-
-uaßınr UA uag = 8661 ZISYvMOM
+per
+Achi
+hielt
 
 ---
 
 ## Foto 030 (PXL_20261018_133300020.RAW-01.COVER.jpg)
 
-you sÖulPISE yaIs goyas Uaeyasımzeg
-Uyejpuenog Sp An) Bunyausgion Jop
-pun jypergeßb ssnyaS u Hop apınm pun
-wom-elgey Ip u eBe] Jon In) Jopaım
-Bub S6Boy Sp — Bunzysspuejsuj Jap 'ue
-uopuejs suglsoße] ahluıe ınu — Bunjoyg
+\ebenbei. Es ist richtige
+besonders enwähnens-
+< an dieser Stelle allen,
+oder um die Verpflegung
+sten kümmern!!
 
-SP ueysiez wı puejs nF Jeg
+ie AG „Aktuelles Stade“
+der Verein „Alter Hafen
+je“ hatten uns Mitte Mai
+\ Mittelalterlichen Hafen-
+yen eingeladen Wir
+en und präsentierten
 
-USYOMUE „ION UOY9S JOpIE7" JILı
-m uajssnw usße] Sp yoeu uoyaS ‘ne
-uayaıı uoßeyuy Sala OS
-JoR OINIFSIay WEUID UI
-EINESSENNEZZSTHETENT
-am ey amısıajun yaw
-jewuls sun @ip '9SSaJd
-aasun ue Yueg LayDıl
--zıay 14933 UaUI® SS
-‚esep uy Yelsejoßsne
-se Jyaw jeyy sopal
-‚em sBboy ag "usem
-"punsßaqgun usyuspag
-ayssun ssep 'snesay
-NauUy9s Jyas yalıs ayla)s
-se Jeqy Luswuyeuue
-yogaßuy sasarp aßıuam
-Inu uuam JysIy9soß sem
-— OYISIY LAILEIZUEUN, WIOP
-Jon jewweg Biusm vo
-y pun uuewey ne
-uoyey Jemz "uLEWISPSF
-in; sWOJSOBeIgIeH
-‚on m UeWyewWelun
-aymyasag-sßßoy sep u jew uejsıa
-wnz 'yeyapuossg au Jyer WaSaIp
-ul j09 "Bunjsejsny @llon aule aßboy
-Sp In, yowwı am 'aydoyy Jejely aid
+zusammen mit der
+na in der alten
+‚estadt Stade
 
-ue
-jaiy ul sopowm sejeds oße, Iamz aBBoy ap
+je Kogge war gerade
+sr zwei Tage in Kiel, da
+en wir bei schönem
+Iwetter einen 50.
+rtstag. Mit an Bord war
+Jazzband — auch ohne
+ärker gut zu hören.
 
-yau em usBozeßge wunis Jap wWOePLMDeN
+> verm che Jugend-
+wehr entpuppte sich als
+ration 50+ und hatte
+für einen Segeltörn
+agt. Verwirrungen gab
+ch über den Ort, wo
+‚Jungvolk“ denn nun
+gen wollte. Aber am
+war alles gut und die
+var für alle ein Erfolg.
 
-sBunaQlS ‚op uayez wıog
+- Mai klang mit unserer
+traditionellen CDO-
+aus, wegen des
+‚n Wetters in diesem
+leider nicht nach
+Jark führte. Statt“
+\ wurden Eckernförde
+ppeln angelaufen-
 
-- "uIBJBNIaPIQ| UI Ef Jun Puls yongalyos
-‘usjedsıa nz uajsoy alayem usa
-wap wn 'peuyej UaUsWWoUSBHL Wop
-ww SyRaNS Jap Isoy Uap Jbıemag pun
-doyuaßeg ypeu auye4 Jop Iw Jun) 'uls
-oddıyg sie Bueids "uueuuyawuana4 Josun
-Öyney os uoyos om 'uuewarz IM
+\ mit einigen Tage°”
 
-"uaßunsıamuy Hoyam
-jne usjoyem pun Bunjejs aıp uayeıy
-payueyy pun peQy 'wiyoy
-usjaue Suyej Jod
-Bbomyony ap Bnlozion
-uapunsßjaz sne uejssnw
-Joneg uensuyg Jaddıys
-pun Ma19 Jep allaL
+Se ng
+te sich die SpannU
+r wusste, dass wiesen
+age harte Ar
 
-yoıbow ıyaw Jyaıu g
-sıq 2 IsO9M !oq — uuep Jem
-uajnejsny Spusgauyosue
-seg usewey pIog
-uoa usyeyaqiyom SEO
-ap YWEeP 'WIonajsue
-Buigeypny oA usjeH
-usp ayssnw eBBoy iQ
-oney Jy9eweß Bunuyaay
-AP yaınp yalıs uauley
-pum ep sun uuam
-ddeaß os sale yone
-NEU SI 'ueyplauo nz
-4oBeyaZ Ayı — JOPUyPEII
-ap aM — sne Hop UOA
-wn 'uepıom Jy9eıgeß pue7] ue jooqiag Jad
-PMSUNIFPBBoy usjUuuexagq Yameasıso
-weissun ypeu als ueylos Bei usydRU
-wy 'ualypewegn nz yop wın 5
-JayUy JOA @lSny Jap Joa pun ujladas
-Puejsßuen ypeu am uoylom ueyoupusßnf
-uop N PIog ue ossejxiny2S
-Sul you sBuIpuaje am uopey JeyloA
+ieler Woche“!
 
-j.ayooM JateN
-av ayey abe
-japaım SSeP "alssım
-gunuueds @ıp YOIS 9}
-„sobeL uabıuıa yw
+Vorher hatten wir allerdings noch eine
+Schulklasse an Bord t den
+Jugendlichen wollten wir nach Langeland
+eln und vor der Küste vor Anker
+gehen, um dort zu übemachten. Am
+nächsten Tag sollten sie nach unserem
+Ostseeweit bekannten Kogge-Frühstück
+per Beiboot an Land gebracht werden, um
+von dort aus wie die
+Pfadfinder — ihr Zeltlager
+zu erreichen. Es hätte
+auch alles so geklappt,
+wenn uns der Wind
+keinen Strich durch die
+Rechnung gemacht hätte.
+Die Kogge musste den
+Hafen von Rudkebing
+ansteuern, damit die
+Gäste wohlbehalten von
+Bord kamen. Das
+anschließende Auslaufen
+war dann — bei West 7 bis
+8 nicht mehr möglich.
 
-‚uajnejaßue ujadd
+Teile der Crew und
+Skipper Christian Bauer
+mussten aus Zeitgründen
+vorzeitig den Rückweg
+per Fähre antreten.
+Achim, Carl und Manfred
+hielten die Stellung und warteten auf
+weitere Anweisungen.
 
-Woy93 uapınm |
-A un) EL
-yoeu ıyolu Japiel
-wasaıp ul sIoyam U
-sap uabam ap 'sne
--909 uajjauonpen
-yayasun yw Buejy IeW.
+Uli Ziermann, wie schon so häufig
+unser Feuerwehrmann, sprang als Skipper
+ein, fuhr mit der Fähre nach Bagenkop
+und bewältigte den Rest der Strecke mit
+dem mitgenommenen Fahrrad, um dem
+Verein weitere Kosten zu ersparen,
+schließlich sind wir ja ein Förderverein. —
 
--5j0u3 ula Ojje ıny JeN
-aıp pun nb sale Jem
-we Joqy 'aylom uef
-unu uusp „yionßunf‘
-om ‘no uap san yı
-ge6 uaßunumen 1be
-woyebas uauls my
-apey pun +09 uone.
-sje yoıs ayddndyus ıyan
--Pusßnf ayaıyulauuan ©
+Beim Zählen der Silberlinge
 
-"ualay nz Inb Jo)ye
-auyo yone — puegzzef
-Jem pıog ue y 'Beishi
-05 uaus 4Japamız
-wougyas 199 JM us
-ep 'jeıy uı abe] Iomz Je
-Speıob Jem abboy 9
+Nachdem der Sturm abgezogen war, lief
 
-apeıg IpeIS®“
-usye ‚ap ul VN
-op yw vowwesnz
+die Kogge zwei Tage später wieder in Kiel
+ein
 
-uspanusseJd pun nz u
-N uspejoduıe US
+Die Kieler Woche, wie immer für die
+Kogge eine v Auslastung, bot in
+diesem Jahr eine Besonderheit. Zum
+ersten Mal in der Kogge-Geschichte
+unternahmen wir vier
+Halbtagestörns für
+Jedermann. Zwar hatten
+Frau Hamann und ich
+ein wenig Bammel vor
+dem finanziellen Risiko —
+was geschieht, wenn nur
+wenige dieses Angebot
+annahmen? Aber es
+stellte sich sehr schnell
+heraus, dass unsere
+Bedenken unbegründet
+waren. Die Kogge war
+jedes Mal mehr als
+ausgelastet. An dieser
+Stelle einen recht herz-
+lichen Dank an unsere
+Presse, die uns einmal
+mehr unterstützt hat. Wir
+kamen uns zeitweise wie
+in einem Reisebüro vor,
+so viele Anfragen liefen
+auf. Schon nach drei Tagen mussten wır
+mit „Leider schon voll!“ antworten:
 
--usjeH LEyOLSNEIORIN |
-ıew anın sun uaneu „Of
-uajeH Jay“ ulalaı JOP
-‚apeys sanpıy DV M
+Der Juli stand im Zeichen der
+Erholung - nur einige Tagestörns standen
+an, der Instandsetzung — die Kogge ging
+wieder für vier Tage in die Rathje-Werft
+und wurde dort in Schuss gebracht und
+der Vorbereitung für die Gotlandfahrt
+Dazwischen schob sich allerdings noch
 
-LEW! UNS
-BunBaydıaa aıp un JOp®
-‘uayıe alayg Jasap VE ?
--Suauyeauo SIOPUOS2Q
-EINTETBTSIEE BEL
+AN
 
 ---
 
 ## Foto 031 (PXL_20261018_133306291.RAW-01.COVER.jpg)
 
-‚Agsıy u 3ejunw pun
-pn purs VOpay ag
-wWeIbaS 9 pun uayoay pz uon SEy9 aQ
+die Feier zum 70 Geburtstag von Vereins-
+es Seifert und am gleichen
+jer NDR an Bord eine Szene
 
-usgey uaßenaßleg
+Die Gotlandfahrt vom 25 Juli bis 16.
+August stand ganz Im Zeichen des
+Mittelalters. Mit 24 Freunden des Mittel:
+alters, kistenweise Mitte jerkrams.
+säckeweise persönlicher Ausrüstung,
+Unmengen an Nahrungsmitteln und sechs
+Crewmitgliedern segelte die Kogge
+voll beladen zum Medeltidsveckan
+(Mittelalterfest) in die ehemalige
+Hansestadt Visby. Reinhard Ziermann
+leitete die Hinfahrt und Ulrich Ziermann
+die Rückfahrt. Auf Gotland hatte die Crew
+Gelegenheit, die Ostseeinsel zu erkunden.
 
-unıaß
+Der August klang mit einem Segeltörn,
+einer Stegveranstaltung und einer
+Kanalfahrt aus
 
-ep aıp ‘ajje ue yueg ualaı\ uaßı
-Ist
+Da einige immer noch auf den Sommer
+warteten, wurde es sehr schnelliklar, dass
+wir die Saison nicht allzuweit in den
+Herbst hinüber retten konnten. Fünf
+Fahrten wurden es dann doch noch im
+September, unter anderem eine schwim-
+mende Bilderausstellung. Hier wurden
+unter vollen Segeln bei einem sehr
+leckeren Buffet die maritimen Bilder vom
+Kieler Maler Jochem Roman Schneide:
+präsentiert und auch einige verkauft :
 
-wu Japaım uosieg Jasalp UI SUN
- ‘saneiß y2l usgauyy9s usyeyaspunasg
-Isnejsnepusßnf — Y2IS19)SQ) anısnıyul
-aas;so Alp wn puns usbunußaßsg
-euonewajuj ;j9IZ Jasun IS! sep neuaß
-in 'gedg uasyı uayey AllV abeem
-D emp ul Zj Ju ypıs uayjaly AISRO Jap
+BR omlenz hatten wir am 7. September
+Bureon: Unser Justizminister Edzard
+Bit Be, on sn österreichischer
+ür zwei S
+unsere Gäste. Die Anzahl der a
 
-un
-Iyezuy ag SEO alasun
-IN usIem
-A erelien ul8s pun
-Bi 2P3 Jelsiunuzusne Jssun a
-quaydas ', we um uoyey zu
+je hielten sich mit 12 in etwa q
+Alle hatten ihren Spaß. Ur
+genau das ist unser Ziel: Internationa
+Begegnungen rund um die Ostsee
+inklusive Österreich — Jugendaustausc
+Freundschaften schließen Ich glaube, ı
+ist uns in dieser Saison wieder einm
+gelungen. Vielen Dank an alle, die da;
 
-ee nn yane pun yanusseid
-N By2or Jeep Jajar
+beigetragen haben
 
-WON JOpIIg uawımuewu ap Jayn a
-ıyes weuIs 189 ujeßag n an
-uopınm Jay Pure a
--wımy9s auto WEISPUE Jajun Yeqwardas
-wı y90U y90p uuep so uapınm usuyey
-Jung uSJuuoy ueysı Joqnuıy IsqloH
-usp ul JIemnzje Jyalu Uosies ip Jım
-SSEp "JEIN ||OUYOS JyaS Sa apınm 'usjopem
-JeWWOS Up jne y9ou Jewwı sbluls eg
+der Gäst
+Waage
 
-sne uyejeuey
-Jeula pun Bunyejsuesanßbajs Jauıo
-"Woyaßas weuıe Jıw Buepy Isnöny Joq
-
-uaPUNYIS NZ [Bsula8sIsO Alp ayuaßajag
-
-Mag ap aNey PuENO9 NY HyeNOny ip
-uuewwerz yauın pun Yyeyuiy aıp ala]
-uueuwueız pseyuoy "Aqsı\ IpeISOSUeH
-ablewuaye Fiıp uw SEHEN)
-ueyoanspıjapaw wunz uepejaq 110A
-abboy aıp aabas wIopa1 dl WIMSIO
-syoas pun ujeyiusßuniyen ue uaßuawun
-"Bunjsnisny JaypılLosıad ASIaMayaRs
-swe,Jyle] ayıN asıamueajsıy sıayje
-jayıyy sep uapunauy vz In SERIEN
-sap ueypıaz W zued puejs Jsnöny
-9, Sıq UN [74 WOA LyejpueNoD aa
-
-EITE PN
-
-auszg auıa psog ue YAN I9 ayap bel
-uayoıajb we pun yayıas Sal ep paudyu
-z 10124 AP
-
--surasayı uon BejsHNg29 '0L w
+Die Chefs von 24 Recken und 6 Seglern
+Die Recken sind müde
+und munter in Visby
 
 ---
 
 ## Foto 032 (PXL_20261018_133308265.RAW-01.COVER.jpg)
 
-"QJIBSUBIEN JEP jne Jeyıly Uap NZep
-ayıq J97 "uejınjsne pejsAja] UoA WInasnN
-wı ZJe]d uelay} up ueyllos @BBOY ee
-aıp pun »BBoy alesun pun Jupeigel
-seq unpaqn Jeawjessi| sul PUBIIOH
-yoeu aßhoy ep apınm eqwerdas ayıN
+n sich mit 12 in etwa die
+atten ihren Spaß. Und
+unser Ziel: Internationale
+und um die Ostsee _
+eich — Jugendaustausch,
+schließen. Ich glaube, es
+‚er Saison wieder einmal
+.ın Dank an alle, die dazu
 
-em |yemsBejpue7 ep In) Jepipueyuazyds
-sewep Jep 'eyny JeyloA Jem NO
-JSp IseßleIs "„ueusNeWWosS ueyosNıod
-“ Jap epug sep pIog ue sun !eq ayele)
-uonyeysdbejpue] NaO Aa "besaßue
-zuaumwosg Byasııod Jem Japaım
+ven.
 
-eIsıew
-pun Surgeypny 'osıaßy 'Glogping uasem
-ueuoge}s zusam JeIsIej ne Buigoy/AN
-uon wWnAUsZISYeIANIN SUN Jyaw jewulo
-ayyny JSSP39 Jaqn Hyepjony eıq Tzınmaß
-USWPEN UEZIny pun WEeIe4 uajeın Jim
-JeM SZUE9) Seq '420)50Y Ypeu jlegasueH
-nz Jespe9 pun away 'sieyo] 'oy
-‘ujsddey Jean ueyeßas „SpueH“ 6 pun
-wuewsrz yauıım Jeddıys "WguaWwosg.
-ne yaıgauyos se Bub nr epug
+tecken und 6 Seglern
 
-"usjnejaßue
-USJULOY SpIQJUI8Y93 pun ujaddey uapınm
-sa pun uSsyoemypunp Jem Jeyayyı seg 'ue
-ums SSOlypS yeyssjleseg-Slegsing-ueg
-‚BP NW WEPUSUEYDOM Jeraıam ug
+müde
+und munter in Visby
 
-"UBJeeH uSJWwWeyaB
-pun syuys-L-eBBoy uayıam uayasıy)
-yw yDIs usJaNuasesd Jaddıys pun MIO
-pun ususiyssse aßjoyag pun Jajzuey
-Jawwı yone al "uapıam usßozaßsne
-uelssnw aynyag Sıp eßos — usßozisyun
-voneysinsagie] Jule apınm MIO Sp
-pun yıypsiessemiajun sep UaJyonssojun
-‚eyoneı "yorsBussdg yoeu uaJyons
-@punH yınp saıe SNEISIEYIEUIIS
-eIp ueJyoaya Jayson y9og
-uSWIWOyY Prog ue us)
-unuapisgudiojsiuy pun
-JepgIyoS Pieyseg
-pun usopiom teuygus 1
+Das lange Wochenende über Himmelfahrt
+brachte die Kogge über Damp und
+Glücksburg nach Flensburg zur
+Rumregatta. Bei dieser Wettfahrt der
+Traditionssegler gewinnt nicht der Erste
+die große Buddel Rum, sondern der
 
-los siuowig apıaH
+Zweite. Die Kogge überfuhr dummerweise
+als erste in ihrer Gruppe die Ziellinie und
+gewann eine eigenartige Skulptur, wohl
+aus Sperrmüllresten fabriziert.
 
-SUog umeg
-JOlzueysapung
-os Y9rasyueıy
+Der Kanzlersprung
 
-jyundiemyas wm
-ulsjsjoH-Bimsajyos seg
+Nach der Kieler Woche
+segelte die Kogge im Ju
 
-QdS Jap uazuıds Sıp pun oddıys sosun
+im Juni
+für einige
 
-leANsayyısny
+Unser Skipper und die Spitzen der SPD
 
-y9agn7
-ypeu UEISRH uaysSIsHZUBI4 yW aßej
+Tage mit Französischen Gästen nach
+Lübeck, Das Schleswig-Holstein
+Musikfestival mit Schwerpunkt
 
-abıuıs ın) nr wı eBBoy aıp ayaßas
+Frankreich
 
-Iunr wI eypom Jejeıy Jep uoen
+sollte eröffnet wer:
+Bundeskanzler oe
 
-ey 20Q
+Gerhard Schröder
+Bl Doris und Ministerpräsidentin
+eide Simonis sollten an Bord kommen
+Doch Vorher checkten die
+Sicherheitsleute alles durch. Hunde
+suchten nach Sprengstoff, Taucher
+untersuchten das Unterwasserschiff und
+die Crew
 
-Bunudsserzu
+wurde einer Leibesvisitation
+unterzogen - sogar die Schuhe mussten
+ausgezogen werden. Wie auch immer,
+Kanzler und Gefolge erschienen und
+Crew und Skipper präsentieren sich mit
 
-"HOIZUge) uejsayınwuads sne
-Iyom undinys oBiueusßıo au uuemab
+frischen weißen Kogge-T-Shirts und
+gekämmten Haaren.
 
-pun auerz aıp addnıg Jaıyı u aysıa sie
-SSIaMWIEWILUNP Junuiagn 8BBoy ad 'alamz
-Jap WEPUOS 'Wny jeppng eyoub ap
-3 JEP you Juumaß JolßassuonipelL
-Jap Ayepom Jesaıp ıag eneßanuny
-ınz Bingsuaj4 yoeu Bungsxanld
-pun dweq san aBboy ap ayperg
-NyeyjawwiH Jeqn apuausyoom abuej sed
+Ein weiterer Wochenendtörn mit der
+Carl-Duisberg-Gesellschaft schloss sich
+an. Das Wetter war durchwachsen und es
+wurden Kappeln und Eckernförde konnten
+angelaufen.
 
-‚Kasıy u sajunw pun
-pow
+Ende Juli ging es schließlich auf
+Sommertörn. Skipper Ullrich Ziermann
+und 9 „Hands“ segelten über Kappeln,
+re, Lohals, Femo und Gedser zur
+HanseSail nach Rostock. Das Ganze war
+mit vielen Feiern und kurzen Nächten
+gewürzt. Die Rückfahrt über Gedser führte
+einmal mehr ins Mittelalterzentrum von
+Nykobing auf Falster. Weitere Stationen
+waren Guldborg, Agerss, Rudkobing und
+Marstal.
 
-WSIBOS 9 pun uayoa}
+Wieder war politische Prominenz
+angesagt. Die CDU Landtagsfraktion
+feierte bei uns an Bord das Ende der „
+politischen Sommerferien“. Stargast der
+CDU war Volker Rühe, der damals
+Spitzenkandidat für die Landtagswahl war.
 
-"uac
-nzep aıp ‘je ue Yueg U‘
-jew Jopeım Losieg 1%
-sa 'aqned ya] "LEYaNyOS
-‘yosnejsnepuaßnf — 498
-= »9sjsg ap wn pun.
-VeUONEWaJU] :MIZ J9SUN
-Pun 'gedg uaıyı uaye
-AP emye ul zy ww yaıs u
+itte September wurde die Kogge nach
+u m ljsselmeer überführt. Das
+gebracht und unsere Kogge und die
+Kamper Kogge sollten den freien Platz im
+Museum von Lelystad ausfüllen. Lest bitte
+dazu den Artikel auf der Nebenseite....
 
 ---
 
@@ -3528,1910 +3514,1864 @@ jpwa4
 
 ## Foto 034 (PXL_20261018_133315511.RAW-01.COVER.jpg)
 
-LE
+überwinterte also als
 
-uaP Jeqn UonelUeLWNyog Jeuls ue apyım
-a66oy aıq "wweißo,g wep ‚ne weagwilg
-uSjeUONEWEIUI WEeUID I uSNaqeyalg
-yone uapuejs jewsaip yPog "aIyonsaq
-wnyuszieyejsnn sep Jepaeım jew
-vew om Jalsıe ‚ne BurgoyAN peu Jaqnı
-aa6as pun mouleq SIp vew yalyar Uuep
-YasıaWeß uapınm uauyejajseg abIu1g
-USPPOYDS JyMIu Uyı @JUuUOy „uauay !BUPp
-pun ussqtam Iype* sne puayajseq Mal)
-ap Isqles pun IoyPem WOIBLE] Lalsıa
-WOUISS „ne ypis Öniyos 13 Janeg vensuyy
-ve opuewWoy sep uueuuerz m gqebssgn
-WOISOy U] VO JessIeg Pun »asuappIH
-"zuusses wjoyguny "Burgexaganıs
+rückte dann der halbe Verein in Lelystad
+an und nahm das Schiff wieder in
+Beschlag. Zusammen mit den Freunden
+aus Kampen und der Batavia-Werft wurde
+daraus ein wunderbares Happening. Eine
+Koggen-Regatta auf dem Ijsselmeer
+krönte schließlich das Meeting und die
+Frage. welches denn die schönste Kogge
+sei, wurde diplomatisch entschieden: die
+KAMPER KOGGE ist die Schönste in der
+Nordsee, aber die Kieler ist natürlich die
+schönste der Ostsee
 
-‘Sıalgspods Joqn ayyn) ummop Bam JeQ
-TeSssueH Inz pun Y90ISOy eu Japaım
-‚yef sesaıp yane Bub WOHSWWOS JOQ
+Die KIELER HANSEKOGGE und die
 
-msn aM '@UPOM JOay 'SWAISEO
-‚us Jopem auyoy Beyesbßoy Jod
+ie: NE:
 
-Toy peu yonınz jeuey pun 3g13 '3SSPJoN
-wanp uuep sa Buß maıy Jewesseds yWN
+KAMPER KOGGE auf dem Ijsseimeer
 
-99SISO Op ASUS
-SP yalnmeu }sı Jaja Ip Jage "SSspioN
-OP UI SSUAUOS IP ISI 39904 BB
-IP :UBPSIyDSJus yasgewoldıp apınm 8S
-5Boy AIsUAYIS aIp uuap saypyam 'adelg
-ap pun Bunsayy sep yauyaıyps AUOD
-‚sewjesschh Wep jne eneday-uadßoyN
-auı3 ‘BurusddeH saregquapunm vie sneIePp
-apınm ylam-eınejeg Jap pun uedwey SN®
-uSpunayj uep uw uewwesnz 'DELPS2E
-u Jepaim yıyas sep wyeu pun Ue
-peysAja] u: uIaJaA Sqey Jop uuep g
-wWeISO NZ 'puejjoy UI jypsstunas‘
-sie osıe ayeumusgn 55 AC
+Mit sparsamer Crew ging es dann durch
+Nordsee, Elbe und Kanal zurück nach Kiel
+
+Der Koggealltag kehrte wieder ein:
+Gästetörns, Kieler \Voche, Werft usw.
+
+Der Sommertöm ging auch dieses Jahr
+wieder nach Rostock und zur HanseSail.
+Der Weg dorthin führte über Spodsbjerg,
+Stubbekebing, Klintholm, Sassnitz,
+Hiddensee und Darsser Ort. In Rostock
+übergab Ulli Ziermann das Kommando an
+Christian Bauer. Er schlug sich auf seinem
+ersten Langtörn wacker und selbst die
+Crew bestehend aus „acht Weibsen und
+drei Kerlen® konnte ihn nicht schocken
+Einige Gästefahrten wurden gemeistert,
+dann verließ man die Warnow und segelte
+rüber nach Nykebing auf Falster, wo man
+mal wieder das Mittelalterzentrum
+besuchte. Doch diesmal standen auch
+Dreharbeiten mit einem internationalen
+Filmteam auf dem Programm. Die Kogge
+wirkte an einer Dokumentation über den
+
+31
 
 ---
 
 ## Foto 035 (PXL_20261018_133324071.RAW-01.COVER.jpg)
 
-weyag vewsije] sje [88914
-wisia UBJOSUN BIP 'ONVIOY
-Ap Pun 39904 Y3dnvy aıp
-man IP '399ONISNYH
-ED Te BIETE ETINTENVUTET}
-pe uaBBoy Jon uaWWmyos
-mar yneleß pun uagoyaß
-RSSeM NZ NaWaUg NON
-ON ap HUISIEISEMYOS
-#sun ulesiog weJjasun
-A apınm IeW wı
+Dieter Teerling
+starb am 12.7.2000,
+wenige Tage nach
+seinem 77. Geburtstag
+Er war der erste
+Skipper der Kogge und
+'e die ersten
 
-189) ugyeygewia wı
-SPAM YONHENNDS ayyoewu
-un doyusßeg jne sıny
-Boy Dip wyeu dıys uedo
-in uaneseday usJaulaıy
-N 'UBPIBM UBSSOIyDS
-ae YaaBloue Jayosı
-Üsspsuesjo I9P ayııH MW
-N @Suuoy pun Jenajusgy
-2 SPınm usjeH uauIelN
-P U Jarpuewaßajuy P
-Bu seg ola, jasuj Ip
-IyDeN
-zayam
+Segelversuche 1991
+vor Olpenitz. Später
+war er unser
+Takelmeister
 
-op abo aus
+Gernot Kronenberg
+verstarb am 23.11.2000.
+Er war seit 1995 aktiv
+auf der Kogge im
+Einsatz. Als
+erfahrener Segler
+übernahm er häufig
+das Amt des
+Wachführers und des
+Gefechtsrudergängers
 
-3 mu BuejsduusH
+Jürgen Karrock
+musste sich aus
+beruflich en
 
-Smalg
+Gründen aus
+dem Koggenma-
+nagement zu-
+fückziehen. Er
 
-yane
-am Jaddı EIS
-pun Yarsıyeßjo
-se se; ey
-43 Ueyarzyonı
-NZ Yuawoßeu
-ewusßßoy wap
+hat fast alles
+Organisiert und
 
-Sne uapunıg
-Voydıynyaq
-SNE yaIs ayssnıu
-POuey usßınr
+Skipper wie
+auch Crews
+bestens betreut.
+Der Verein
+verdankt ihm
+vieles. Hans
+Billmann Über.
 
-Sseßupßsopnisiyss,ag
-Sap pun Siesynjyoem
-Sop jwy sep
+Nimmt ep
 
-Ölney 30 wyeussan
-38/685 Jeussyeyo
+r se
+Position, ne
 
-sıy 'ziesug
+Dann
 
-wı aBBoy Jap ;ne
-ANNE S66L NOS Jem 13
-0002 L1’Ez we quejssan
-Blequauoıy J0UJ89
+weiter
 
-RW
-J0sUn Ja sem
+ging die Far
+Yd erst spät in 4
+Nacht erreichte die Koge
+die Insel Fejo. Das Einlan
+und Anlegemanöver in de
+kleinen Hafen wurde Zu
+Abenteuer und konnte A
+mit Hilfe der Ortsansässige
+Fischer erfolgreich abge
+schlossen werden Nac
+kleineren Reparaturen un
+Open Ship nahm die Koggı
+Kurs auf Bagenkop un,
+machte schließlich wiede
+im Heimathafen fest
 
-eds Zuuadıo son
-1661 apnsianmßas
-LRISI0 ap aroyı9
-
-pun #8804 Jop Jeddnis.
-Asa Jop em 13
-Beisungag "22 weuIas
-ipeu abe oßbıuam
-0002221 we guers
-LINTEEIWEETEITe]
+Im Mai wurde ;
+unserem Beisein unse
+Schwesterschiff die Rot
+VON BREMEN zu Wasse
+gehoben und getauft. Jetz
+schwimmen vier Koggen ad
+den Weltmeeren: Die Kıeıer
+HANSEKOGGE, die UBEM
+die KAMPER KOGGe und de
+ROLAND, die unseren ersies
+Flögel als Talisman bekam
 
 ---
 
 ## Foto 036 (PXL_20261018_133337805.RAW-01.MP.COVER.jpg)
 
-133
+Für was g
+h alles au
 
-‘ulsßag Jejun 096 Uonep — uajleWeaS
-0081 - wgIebboy aysbuej Bueisiq
-op Jem serg" :smaon-eßßoy uep SNe
-Jopaım jJejlz ;uewwesnz zıny WOL UP
-IM USSSe 4 'anye oBBoy aıp any aynay y9oU
-puıs uonep sBluıe pun uspuıgnzule qeueg
--SyIy9S Pun eunnoısyıyds U JEIENSIIN
-uayosu) Sp 'leuyos Buejeß se Jaqy
-yınyoßjne „spueH* aneu aßıule yoınp JeM
-Maıg sÄezB1Q jeeysın Jeddıys 'ueyaßso|
-ssıey yo IP WUUoy yaıpuz
+die Fah
+Spät in de
 
-„soyyaloıd uau
--eßunjoß sap uONENsUOWET SIIOASYONIP
--uI® au epınm se pun "UEIELJSUOWEP
-nz s6Boy Jelesun Usyeyosusßlajaßas
+ver in dem
+vurde zum
+konnte nur
+ANSäÄSSigen
+ich abge.
+en. Nach
 
-Kaz60 Ieeysın JEddıyS II yOBJdSBg) wı ney sau
+ch wieder
+est
 
-pun -sIeuNgeIS 'ayusßejeg aıp LO Jon
-an uSbesnzos sun geß pun yasıyaßjne
-yoyzıgoıd ayey Ppum Jeg :elleS Jelasun
-ine Jem Snussey pun 'uslyeyeo soyyaloıd
+wurde in
+n unser
+ie ROLAND
+! Wasser
+auft. Jetzt
+\oggen auf
+Die KIELER
+e UBENA,
+;E und die
+ren ersten
+n bekam.
 
-"WIyV Sep Bloug uep usyayosaß
-Iy9IuU you JIemos SOM apuny
-op® esalg elyeg Jap uoA wm usjem
-SEHE Bag yasıuyoa) A3SNYH Maloıd
-sep sjewep Jap 'uaneysowaug swunasnuu
-Suyeyuyos UeyosInag sep Joyauıd
-Jay9s1uy9a} 'BSIayOH Jeraıg-yoyn Burjdiq
+die Kogge ist seit 10
 
-01072
+Ein „Störtebeker"-Film war angedacht
+und die Kogge war nat \ heiß darauf
+dort aufzutreten. Doch der Traum
+zerplatzte, das Projekt wurde aufge-
+schoben und wohl auch bis heute nicht
+realisiert. Trotzdem hatte das Jahr ein
+absolutes Highlight: der lange Törn nach
+Riga zur 800-Jahr-Feier der Hansestadt
+Die Kogge war ein-
+mal mehr Botschaf-
+ter des Landes
+Schleswig-Holstein
+und diesmal sogar
+der Bundesrepublik
+Deutschland, denn
+Bundespräsident
+Johannes Rau und
+Gattin waren in Riga
+an Bord und gratu-
+lierten der Stadt.
 
-ueyor Juapıse,dsapung
+Das Projekt Riga
+musste natürlich gut
+vorbereitet werden
+und so war das
+Frühjahr entspre-
+chend davon ge-
+prägt. Aber auch die
+gewohnten Arbeiten
+und  Veranstaltun-
+gen mussten wahrgenommen werden:
+Abplanen, Auftakeln, Ansegeln, Trainings-
+{örn, Gästefahrten, CDG-Törmn und
+Natürlich die Kieler Woche.
 
-pun ume9 IWw usZuer „Iopaay" jasun
-yone “uuewejg-SpplLIYOS Jg Vayleyperg
-‚say WaUIss Ju epoßer Pleyusag
-‘Sıaquunn Sne JagIy ıny NeIsuesopung
-Jap JuapIseId JOp WE EC] :uogey nz pyog
-ue SSH aNsnıjl Spun]g aule in, ‘39904
--3SNYH JOp „JOsseryy-Wi-seiyer“ ualuyaz
-sap yaılssejue ‘usßnußleA sep pun ag
-SJ9PLUOSaq Alp Y90OU JIM UEyey uonauef
--pulM ep ue ssniyosuy wi“ :,00z
-saıyer sap SMaN-aßßoy Jap sne yeyz
+B
 
-"ay9oM JOaIy Ip yoıunjeu
-pun WOL-9QI UeHyejajsegn 'uoy
--sBuruies | 'uJObasuy 'ujayeyny 'uaueiday
-‚uspsem uaWWOUSBIyem uajssnw usß
--unyejsues\ pun
-usyaguy USJuyomaß
-aıp yane Joqy 1beud
--a6 uonep puayo
+Zitat aus der Kogge-News des Jahres
+2001: „Im Anschluss an den Wind-
+Jammertörn hatten wir noch die besondere
+Ehre und das Vergnügen, anlässlich des
+zehnten „Jahres-im-Wasser“ der HANSE-
+KOGGE, für eine Stunde illustre Gäste an
+Bord zu haben: Da kam der Präsident der
+Bundesanstalt für Arbeit aus Nürnberg,
+Bernhard Jagoda mit seinem Kieler
+Statthalter, Dr. Schmidtke-Glamann, auch
+Unser „Reeder‘ Janzen mit Gattin und
 
--aydsyus AJyelunıy
-sep Iem os pun
-uopıom Jeylasaqıon
+undespräsident Johannes Rau im Gespräch
 
-In6 ysıunyeu ajssnw
-eßdıy Paloıd seq
+Dipl.Ing. Wolf Dieter Hoheisel, technischer
+Direktor des Deutschen Schifffahrts-
+museums Bremerhaven. der damals das
+Projekt Hanse KOGGE technisch begleitete
+waren mit von der Partie. Diese edle
+Runde wollte soweit noch nicht
 
-'Jpe]S Jap uayaıı
--njel6 pun pıog ue
-eßıy ul usIem umeg
-pun ney sauueyor
-Juspıseldsspung
-uusp 'puejyosinag
-Yuqndaısapung J2p
-leßos jewssip pun
-uUlS}sSIOH-Bimsely9S
-sapue] Sap
+geschehen den Erfolg des ABM-
+Projektes erfahren. Und Rasmus war auf
+unserer Seite: Der Wind hatte plötzlich
+aufgefrischt, und gab uns sozusagen live
+vor Ort die Gelegenheit, Stabilitäts- und
 
-a
-Jeysstog Iyawı jeW
-a em Boy AQ
-IpelsosueH Jap JsIa-ıyef-008 Inz eÖIy
-yeu wo oBuej op Yubilydin saQnIosge
-u8 Ayep sep oyeu Wepzjo) MA
-alu oynay sıq yone Iyom pun uagoydS
--sÖine apınm peloıd sep 'arzıeidiez
-wunei| Iep ypoq 30
+mit Skipper Michael Orgzey
 
-usyannzıne WOR
-jneiep Jiay yoıımeu em „Boy aip PUN
-Woepaßue em Wil Jeyaqanars’ UF
+Segeleigenschaften unserer Kogge zu
+demonstrieren. Und es wurde eine ein-
+drucksvolle Demonstration des gelunge-
+nen Projektes.“
 
-ul
+Endlich konnte die große Reise
+losgehen. Skipper Michael Orgzeys Crew
+war durch einige neue „Hands“ aufgefüllt
+Aber es gelang schnell, die frischen
+Mitstreiter in Schiffsroutine und Schiffs-
+betrieb einzubinden und einige davon sind
+noch heute für die Kogge aktiv. Fassen wir
+den Törn kurz zusammen: Zitat wieder
+aus den Kogge-News: „Dies war der
+bislang längste Koggetöm - 1500
+Seemeilen — davon 950 unter Segeln,
 
-19sse MN WU
-01 es Jsı 8BBoy aıp — iyelswnel
-
-"weyag u
-usjsı9 us
-aıp pun 3:
-vnaan #®
-FEREINETe
-jne uaßßo,
-wor 'yne
-lsssey\ Tr
-anvıoy 9ı
-Jssun un:
-u 9pın,
-
-Isa
-Jopsım yo
-Pun doyu
-SBboy aıp
-Pun usınye
-den us;
-"SÖge yon
-Neßlsspsue
-Nu Suuoy
-wnz apına
-Wep ui yon
+33
 
 ---
 
 ## Foto 037 (PXL_20261018_133346792.RAW-01.MP.COVER.jpg)
 
-yaıs IN}
-ayaaıds
-uanıpVy
-71812. 770]
-) yoıaıB
-ınuabia
-3 4
-asoun}
-> sed
+r
 
-ebıy ui MORSBBO NY Jg
+wir sind erstmals 48 Stunden und
+länger am Stück geseg d haben
+so viele Häfen besucht wie nie zuvor.
+Die Route führte über Redby, Rostock,
 
-„ia
-sanaN IN ayaw Zeig uy eos es
-VINDYOS ueJdoy uaıyı sne syonıpuıg
-le UOJSSnW als 'ols uayepue uebeyag
-saßusIBnau Iny S,doy alyı usyaynyos
-pun Y9ag Ue wWOJ-edIy sap puasyem
-VSJES 9IS“ :sapuaßlo, sjewep aJajyousg
-SMaN-oBBoy aıq Yoylaqiesen asıam auyı
-jne ıno] aıp usgey 'apıag SO usJem 19po
-Syyasııd Ueydals
+rtschaft zwischen Nord- und Ostsee
+Kieler Hansekogge erfolgreich aus Riga zurückgekehrt
 
-sa Jem Jopo ZJUIH dw 1-Puun99 nz 08Boy aıp apınm eig ul
+Bendoyeisident Jehanerı Row wer
+Kanne Careglte anf der Kader,
 
-umu3 °}Bnazıa ua
--uUnJ3UUu3 Spusgıalq
-Sala ey pun sıu
--gq313 sajj0) ul JeM
-wor -edıy J9d
+fanden mehren Orpwenchjel wag.
 
-199 yoeu
-yanınz apue}s 'jeJS
-ey ‘sıeyo7 ‘Burg
--oyaggnıs WIOY
-Buy 'peisA BU
--oyysuey 'puel09
-Juweysauoy ein pun
-edıy yoeu sbeisioN
-sıdsjusA 'epad
-ey ‘omomejsipelM
-wjoyusog/auupy
+Ronne/Bornholm
+Wiadislawowo, Klai-
+peda, Ventspils
+Mersrags nach Riga
+und via Ronehamn/
+Gotland, Karlskro-
+na, Ystad, Klingt-
+holm, Stubbeko-
+bing, Lohals, Mar-
+stal, Strande zurück
+nach Kiel.
 
-he Fr
-a
+Der Riga-Törn
+war ein tolles Erleb-
+nis und hat viele
+bleibende Erinnerun-
+gen erzeugt. Erwin
 
-Tea rang
+In Riga wurde die Kogge zum Gourmet-Tempel Hintz oder war es
 
-Voragagnag
+Stephan Plischke
+oder waren es beide, haben die Tour auf
+ihre Weise verarbeitet. Die Kogge-News
+berichtete damals folgendes: „Sie saßen
+während des Riga-Törn an Deck und
+schüttelten ihre Köpfe. Auf neugieriges
+Befragen erklärten sie, sie müssten alte
+Eindrücke aus ihren Köpfen schütteln,
 
-O ac uopem,
+da sonst kein Platz mehr für Neues
+wäre!“
 
-AAO 209 jun dann an nl
-ji 2
-AN mer kregef Jmprepapueg.
+Die Koggecrew in Riga
 
-UyEPPERPgUNZ Kbiy sne yrau6jop »66oyasucH zoprx
-
-951SO pun -PION URPSWZ EL sne BUpsEny
-
-490]s0Y "Agqpey Jagn alyn) ajnoy arg
-JOANZ alu SIm Jyonsag usjeH ajaln os
-usgey pun }aBasaß yonıs we saßugl
-pun uapun)s gP sjewjsise puis Jım
+Das K°
+furiosef
+in Eni
+eigentlic
+gleich ©
+Orkantie
+Aktiven
+spreche:
+für sich:
 
 ---
 
 ## Foto 038 (PXL_20261018_133348115.RAW-01.COVER.jpg)
 
-Se
+Renne/Bornholm,
+Wiadislawowo Klai-
+peda, Ventspils,
+Mersrags nach Riga
+und via Ronehamn/
 
-ads
-won aıs oz aBuayı INYHV oog-YuvS sed
-«Bunsynsegpunid usyJeysonep
+Gotland, Karlskro-
+na, Ystad, Klingt-
+holm, Stubbeko-
 
-op a6ßoy ap wernus WM pun 'efı
-"uossepiinydg UOA UBPIOH noyuoßuedioA
-uoziois Jaure uaypıaz SIE yaıs
-adıoz pun 1yoaıob vgebjny uaylaanııny!
-zanıı @6Boy ap apına UOHMEN "oyssnw
-uoypew Kooquods WE uadweiy
-uaypısner-upeA ap wun uEBIOS yeysus
-you yaıs Puewelu ssep JEM de] wap ue
-joge zeyıs "yunyoH ayı Jagn NASIE) pun
-sne uaındg asaip uaıyer ualeın "UBIOIA
-u vew gRJb Jyoloyala NEON assımaß
-ey seg maLoy zueß yalu em W 087
-von aj2ı] eusgeßaßue aıp UUOP ‘söng
-sep ındg ap ypou Jzau Jyaraaln SO
-1a suajeH sap punıg wep ‚nv ’qappeH
-won uajeH wı sem @5ß0y aip "wnpl uoy
-151 so "ureu 'UION 1OIYOS Jop ue ÄqappeH
-von usjeH Wep 'un YO UaPUENUON
-ıyı weum ue aBBoy ap aylom sasald
+ing, Lohals Mar-
+stal, Strande zurück
+nach Kiel
 
-"QUuoy
-uszue]b uosieg Jop ul Jy9eIg Jajlon u! aIS
-ywep 'Newuajneysam UBÖIyS9MUID uauıs
-ayelyng sasaıp auaypseq aB8oy 2Q
+Der a-Törn
 
-iur g’6p} Yu VEyjbipumysseg sy9oU
-up @ip joly UI WUNNyONa7 WE apınm USS
--SeWEB ;uSWWESNZ USOqUEYO LASYIEIS
-ap yasuejsge) Joyeds alas OMA SOP
-NpuSg u 'uapom Yapulyıorn USPEYIS
-S1apaMm Jos pun Inepan Jaydıs yU9S Sep
-ayuuoy Bunßusnsuy Jeyulmen N "JOB
-NZ USJeMm ayeıy Sp 'WayDIs NZ SPUSIIOn
-WUOS sep wn 'sne Jyolu Ualy9IEJ UUeW
-IOmZ Jald Sıp LE USYIegIEND LBOPION
-sep yaIaıag wı Jans Öngpiogqypeg JOp
-"usssusß Buudssayyay aıp sem yaızjesnZz
-"uoße] Jeld JBP jne Japuaj alle ssep
-"Bumag uoyey Jassemy2oH pun wg'L UoA
-Sypyuaa Ip '@wargoid yaıyım uaıem
-uayes Jejeds 197 azıny uapısq sp sem
-@Bßoyssue} Jap uw „aweigosg" aropjaw
-pun y90uey usainr pun uuewssrz youım
-tBzodzinyssiasseyy Sp Slletuueje yoopal
-SUDEN 'yasıyun Yundjlez wap nz sem
-Say "HENIONUOY Byyueg Yılg uUeWSjoog
+© war ein tolles Erleb-
+nis und hat viele
+bleibende
 
-AZ
+gen erzeugt Erwin
+Hintz oder war es
+Stephan Plischke
 
-won PEN Jop ul aym 00°
-Ip opınm Bei uapaf Jyoıu en
-1WWUNseq Jem sed „Nuemaß
+‚en es beide, haben die Tour auf
+se verarbeitet. Die Kogge-News
+‚e damals folgendes: „Sie saßen
 
-08 rn
-pun Bileziyaas Suhl
-JoA Jey IsuoIpIENaM ayasınag ü Wasgn
-UNEIGE9 LMUNOMEg JElypıp a Veryne
-PUEIYOSINOPPION UN EMEJCIOA un m?
+des Riga-Töm an Deck und
+en ihre Köpfe. Auf neugieriges
+1 erklärten sie, sie müssten alte
+(e aus ihren Köpfen schütteln,
+st kein Platz mehr für Neues
 
-ge JoyojoM 'sun nz alsny Be {7
+1 bekam im Sommer, kurz vor dem
 
--Bimsalyds PUun uayasısı ey
-Jop ue pun Iyong VoyosInDg Ton Pal
-ywy 08) nz Sıq uaog u Oeisuenn,
+eine neue Backbordmaschine.
 
-u puim Jun EL ge alypeıq eu
-seg“ !Bunjenlwassarg at Ro
-(amd) Isusipionom Syosinag Pa
+a dankte als Bootsmann ab:
+Wurde sein Nachfolger.
 
-ypis 0)
-uoßunarsseg uayasıyded AP uaypalds
+) /olvo Oecsanı RaAGa
 
-you aynay Isqeg wary U vanoN
-Joyumy WI yone aıp yaly BUUV ROOTS
+„Jahr 2002 konnte nach dem
 
-seg :uy yers uayueunuln) uauıa WT
-aba so yaog 'uapıam Biynı In yes
-(woj-ediy uap ue uobunauu3
-web uoßjemyas ayaın) 1007 IUET .
-wep ypeu ayuuoy 200% yer-ab6oX
+hr 2001 (viele schwelgen gem
+ROSEN rungen an den Riga-Törn)
+egentl A nur ruhig werden. Doch es legte
+gleich einen fulminanten Start hin: Das
+Orkantı f Anna hielt die auch im Winter
+‚Aktiven in Atem Selbst heute noch
+sprechen die graphischen Darstellungen
 
-IBRSO) OAIIOY Kasppt
+für sich
 
-OBIOIEN US apın joy
-ge UUEWSIOOB SIE SpUEP Uueuy:
-‚Qu psewpioQpeg anau au
-wap JON ZINy JaWWOS wı Weyog Fr
+Das Ko9g®
 
-"YeypsaB ypou 15
+in
 
-sonaN In} Iyaw zeig Uy %
-"ujannyos usjdoy uanyı sne 9)
-aye uajssnw as "as LaUgpuS
-sabusıßnau ‚ny 'ydoy auyı Us
-pun »oag ue woj-eörg sap
+zunn
 
-uages ig“ ;sapuaßjoj sewep 9
-SMoN-aB6oy Q TaNaqeran 3S
-ine ıno} aıp uegey 'apıaq Sa ua
-ayyasıld ueydals
-se ıem Jopo ZIUH
-umug "önazıe ue6
--unouunu3 3puagıNg
-ajaıa ey pun SIU
--gau3 say u JeM
-woy-edig 190
+a Deutsche Wetterdienst (DWD)
+Orkanı un einer Pressemitteilung: „Das
+Orkansıa Anna brachte ab 13 Uhr Wind in
+über ee mit Böen bis zu 180 km/h
+Niedersa Deutschen Bucht und an der
+hoitein; chsischen und schleswig-
+15Uhr Kan Küste zu uns, welcher ab
+Auch ee verbreitet in Norddeutschland
+auftrat Der Det bewohnten Gebieten
+diesem utsche Wetterdienst hat vor
+£)
 
-joy yoeu
-yonınz apueng EN
-ey 'sIe4or Sulg
--Oxa2qgqamS wiou
-Buy 'persa eu
--OINSUEN puen09
-Juweyauoy ein PUR
-edıy Deu sbeusioNn
-‘sjdstuoA 'epad
--1eIy omomelsipelM
-"wioyusog/auuod
+Ereignis iti
+Ngemessen g rechtzeitig und
+
+Auch go ns Das war bestimmt
+Ko s Dicht jeden Tag wurde die
+um 22.00 Uhr in der Nacht vom
+
+NEID
+
+2992
+
+Bootsmann Dirk Panthel kontrolliert. Alles
+war zu dem Zeitpunkt unkritisch, Nachts
+jedoch alarmierte die Wasserschutzpolizei
+Ulrich Ziermann und Jürgen Karrock und
+meldete „Probleme“ mit der Hansekogge.
+Was die beiden kurze Zeit später sahen,
+waren wirklich Probleme: die Wellenhöhe
+von 1,5 m und Hochwasser hatten bewirkt,
+dass alle Fender auf der Pier lagen.
+Zusätzlich war die Achterspring gerissen,
+der Backbordbug stieß im Bereich der
+vorderen Querbalken an die Pier. Zwei
+Mann reichten nicht aus, um das Schiff
+vollends zu sichern, die Kräfte waren zu
+groß. Mit vereinter Anstrengung konnte
+das Schiff sicher vertäut und somit weitere
+Schäden verhindert werden. Ein Bericht
+des DWD stellte später tabellarisch die
+stärksten Orkanböen zusammen: gemes-
+sen wurde am Leuchtturm in Kiel die dritt-
+höchste Geschwindigkeit mit 149,8 km/h!
+
+Der Kogge bescherte dieses Frühjahr
+einen einwöchigen Werftaufenthalt, damit
+sie in voller Pracht in der Saison glänzen
+konnte.
+
+Dieses wollte die Kogge an einem ihr
+verwandten Ort tun, dem Hafen von
+Haddeby an der Schlei. Nein, nein, es ist
+kein Irrtum, die Kogge war im Hafen von
+Haddeby. Auf dem Grund des Hafens gibt
+es vielleicht immer noch die Spur des
+Bugs, denn die angegebene Tiefe von
+2,50 m war nicht ganz korrekt Das hat
+gewisse Vorteile vielleicht gräbt man ın
+vielen, vielen Jahren diese Spuren aus
+und rätselt über ihre Herkunft. Sicher aber
+an dem Tag war, dass niemand sich mehr
+ernsthaft Sorgen um die Yacht-tauglichen
+Klampen am Sportbootsteg machen
+musste. Natürlich wurde die Kogge ihrer
+kulturellen Aufgabe gerecht und zeigte
+sich als Zeichen einer stolzen
+Vergangenheit Horden von Schulklassen.
+Tja, und wie entkam die Kogge der
+dauerhaften Grundberührung?
+Das SAR-Boot Arthur Menge zog sie vom
+Schiet.
+
+35
 
 ---
 
 ## Foto 039 (PXL_20261018_133354891.RAW-01.COVER.jpg)
 
-! aM jem
-OSOy yoeu
-san Vewwousg
+als im
+Förde,
+seinen
+end am
+tterprognose
 
-3535 pun pıog
+passend war, SO warteten nun alle
+nge auf das Ende dieser
 
-YWOH JE)suUop
-JeIglan Ayer
-s39-Biagsıng
-ing ınz Bny
-I yo os om
-SP ue apı94
-- Iyer-35604
-ueBie1 Old
+welche die
 
-ISyopunz
+anderer Wind
+auf der Kieler
+Race
 
-FOpO Jeyy 3sı -
+nz
 
-5)
-IM Jaaryı yay Jyoıu yoııneu Som
+wehte
+Volvo Ocean
 
-EN Olsıo sep Soney Buniynagaßboy
+n Kiel hatte
 
-Puny -P 2YNY ausw uoBomsam
-Bus? 85604 sap ;ne eluy nes
-Bye, Ydoysuyg usssouaßsuapıe]
-2002 el Nezy9oH ap Jem
-"93 soysıugsıad urayy
-De q 99S]SQ Jap pung uap
+e Die Flaute aber
+Flotte ereilt hatte, warf den Zeitplan
+des Festes kräftig durcheinander. So
+waren einige Gäste der Hansekogge
+schon wieder von Bord, als die Illbruck
+als zweite die Zi ie überquerte,
+Eine wichtige Begegnung an diesem
+Tag auf der Förde freute alle
+dienstälteren Koggeherzen Im
+Getümmel lief die Gotland I, ehemaliges
 
-we
-Kup „nQ Jon 18 yues yojgds ayoom
+Schleppfahrzeug der
 
-J
-Be on uuop Jennyıalsayasıjsbauy
-OU ja Yu InB yyoıu yunynz aıp sa
-ap öng ge JopI97 jsıem ugyas jaBBoy
-Ay u Yop Jon ‘oz uayaısuojowun
-BBBoy Jap Bnaziyejddajyas
+unmbotorisierten Zeit we in
 
-MOJSOY IeSESUeH pun
+Kogge! Schön wars! Leider ab, Bug
 
-soßllewaye 'j PueNog aip ya jewunao
-wi :uozıayabdoy ussajjejsusp
-ale nal) @PIO4 Jop jne Bei
-weseip ue Bunubaßag adıyoım auıg
-suonbisgqn auujaız ap MZ Sie
-yonıgıj] aIp sie 'pIog uoA Japaım uoyas
-abboyasueH Jep alse9 blu uelem
-08 apueuayaınp Biyesy selsaj sap
-uejdjlez uap em
-ap aysıam age 8
-Jossiıp epug Sep
-ale unu uajayem 08
+es die Zukunft nicht gut mit ei Mei
 
-asoußo,dienem AP s
-my u us)
+Kriegsfischereikutter R na al
+r
 
-we pual ”
-uauIas @9ey UE99O ONOA SEP
+Ährg,
+%
+te
+te,
 
-apıg4 Jaaıyı Jap ME | an
-wı sie pum 4Jalapı
+Woche später sank er
+v
+den Grund der Ostsee or Damp
+
+a
+
+Mein persönliches
+war die Hochzeit mein e/Onie 200;
+Leidensgenossen Christoph R äglichen
+Frau Anja auf der Kogge Pr, Seiner
+weswegen meine Füße das " Grüng
+Koggeberührung hatten Erste gl
+
+Was natürlich nicht fehl
+ft
+und HanseSail Rostock . IK ch
+7
+
+Die Vergan
+Kogge-Jahr ;
+Förde an die
+Wie so oft i
+trug zur Bur
+Duisberg-Ges
+Jahr verbrac
+denster Herk
+Bord und sege
 
 ---
 
 ## Foto 040 (PXL_20261018_133356390.RAW-01.COVER.jpg)
 
-is6U1P209 ap u 1060S
+vor den Bug
+’ider aber mei
+ut mit dem al
 
-SeJuapel Uauye aIg Luapınm ueyonab
-„aydey sewnzejuoy" won Jajeds
-sun uon sbluIs ssep 'uelep Jyoıaıjaın
-se sej uexonıqıegn nz yoneiyog
-wauyı Ju SSNIUISUBIOSSEN LWUNZ Sy9O1S
-@Bue] @Ip sun wn 'ejlelS Anz yoıe]b
-yane Jem Jyamuanay aßıımaaJ @Ig
-Yunjaßysinp usypeunse4 sep opınm
-ISO YW usgieg Jap puejsqy
-uaßnsundun sßueydwny ınz sıujeyloy
-wı wep ul wejgosg ule puejsaq
-yopar uagıeig ueßaıı Jdoyusyonig
-We JU9eN Jeqn Jim UBJIOS WEPNZ
+der
+Nte
 
-1eußIoaß uayıyas uon
-usßejuy sep ınj JBuIpag Inu ısı SPONIgaaS
-aBue] W GE aIp UUSP 'pegleysasıso
-sep In) uonesuag aulsjy aulg yongaß
-SPNIIESS Op Lon swolZiny ı2ıp
-0} Jem oBBoy aıp uuap ‘ua ddors uauıo
-m us)BS] Jage Zunw-jeesg u Iso sıny
-go "usßeiyosaßuis Bizueg yoeu Bunyyou
-sewwy oBnypu ip jew uoyos apınm
-SeL uapusßjo, wy "uepeyosieusjeny uon
-ag Juoyasian SUpIpsiyayay Jep ı0q
-boy sıp ssep "yauneIsia Japaım Jowıwı
-151 SZ usJuuoy ussseuan MOUJEM ap nay
-Jun Se "DIS UBInaJ, Ally 'uasse| nz ueinds
-Sssey Slssun ui PI89 usydssiq ulo em
-Hayusßejsg anB auıo sap Ssep jeuyos
-Jyss Joge yußaq esssueH op jsanıL
+ten
+denn nur eine
+r vor Damp auf
 
-200T
+Ereignis 2002
+'eines täglichen
+stoph und seiner
+9g9e, der Grund,
 
-won ushelyasio sem yo] "uyey Suoßug;
-a1sJa aulaWı IN) yI49S Sep Bonsaq yaı uuap
-'ue os Boz ya yanyy Jeubewwswunygan.
-u ‚yer wWopsl ur am sem aBßoy
-aa IESASUEH INZ Y9OISOY YDeU Jsyopunz
-sa Bub Yeweueg Jogn "uswwouss Bay
-apjasıp Jop IPlU apınm so \pog ‘@6Boy,
-Jap SYIIY9SPH JOP UI jeyy 8IS10 Sep zyou
-‚pız sie bizueg Mey WOHSWWogS 20
+© das erste Mal
+n
 
-ZWON-FEID UOR DNNIABBS I0p uy
+hite: Kieler Woche
+- ist klar oder ...
 
-usddey peu usjaßas pun px08
-ue SpuUsuaysoy\ U® yunyıop JASUPp
--AYISIHA USYOSUOyy LEJyoeuqian NEN
-saselp yony "19q Yeyosuasag-Bragsing
--He9 eIp »BBoy ıop iayung ınz Bnn
-uaıyen ueusßueßiea uap u yo 05 aM
-52] Jayum um UEyuejdzioH ap ve @px0d
-Op ul Sı3 sep yaıs aim E00z yer-@BboN
-sep Joan yaıs IBaj Jloyusßuedien AO
+Die Vergangenheit legt sich über das
+Kogge-Jahr 2003 wie sich das Eis in der
+Förde an die Holzplanken im Winter legte
+Wie so oft in den vergangenen Jahren
+trug zur Buntheit der Kogge die Carl-
+Duisberg-Gesellschaft bei. Auch dieses
+Jahr verbrachten Menschen verschie-
+denster Herkunft ein Wochenende an
+Bord und segelten nach Kappeln.
 
-Sy9oM 1221 :oyıy
+An der Seebrücke von Graal-Müritz
 
-u
-IEW Sjsıo sep a
-'Punı9 op ‘oB6:
-4BUl8S pun ydoys
-Yeysuse} sauıeı
-2002 EINTIEIE]
+Der Sommertörn hatte Danzig als Ziel,
+Dicht das erste Mal in der Geschichte der
+Kogge. Doch es wurde nicht der direkte
+Weg genommen, über Dänemark ging es
+Zunächst nach Rostock zur HanseSail. Die
+Kogge war wie in jedem Jahr ein
+Publikumsmagnet. Auch mich zog sie an,
+denn ich bestieg das Schiff für meine erste
+längere Fahrt. Ich war erschlagen vom
 
-Ne dwe, Jon 4
-us q
+2/03
 
-\ Inu uuap
-ae wep zw jn
+Trubel der Hansesail
+schnell, dass dies eine gute Gelegenheit
+war, ein bisschen Geld in unsere Kasse
+Spülen zu lassen, Alle freuten sich, als wir
+heil die Warnow verlassen konnten Es ist
+Immer wieder erstaunlich, dass die Kogge
+bei der Verkehrsdichte verschont bleibt
+von Materialschäden. Am folgenden Tag
+wurde schon mal die richtige Himmels-
+fichtung nach Danzig eingeschlagen, grob
+Kurs Ost. In Graal-Müritz aber legten wir
+einen Stopp ein, denn die Kogge war für
+drei Kurztöms von der Seebrücke
+gebucht. Eine kleine Sensation für das
+Ostseeheilbad, denn die 350 m lange
+Seebrücke ist nur bedingt für das Anlegen
+von Schiffen geeignet
 
-1aw P
-1op Au J0gee jopıc
+begriff aber sehr
 
-ng usp 10r
+Zudem sollten wir über Nacht am
+Brückenkopf liegen bleiben. Jedoch
+bestand ein Problem in dem im
+Verhältnis zur Rumpflänge ungünstigen
+Abstand der Dalben. Mit Geschick
+wurde das Festmachen durchgeführt
+Die Freiwillige Feuerwehr war auch
+gleich zur Stelle, um uns die lange
+Strecke zum Wasseranschluss mit ihrem
+Schlauch zu überbrücken. Lag es
+vielleicht daran, dass einige von uns
+später von „Montezumas Rache"
+getroffen wurden? Die Fahrten jedenfalls
 
-Buy u aB6boy
+‚Segel in die Gordings!
 
 ---
 
 ## Foto 041 (PXL_20261018_133403165.RAW-01.COVER.jpg)
 
-VONUBAy pun
+war bei
 
-SV uaypsıssejy Wap Pun
-ap In uowyeuyn UN
+e, wie viele Lichter
+(selbstredend alle AN
+ele Sterne funkeln
 
-Fre yps aropunı er seq
+ings etwas
 
-#
+Doch dann
+machten gegenüber des
+Krantors direkt vor dem Bug des
+Museumsschiffes SoLDEK fest
 
-‚paurayun jS1 SBeluy-Broysyn
-apıpuyaq neg wı ug
-yaaıps uauadsıan nz Bam
-gap AWSWEPUNJUOJSg Sbisau
-apanyez YO ulsyung wu
-Se SIE JuESE) Puemyasjan
-aamebue] Omıoz Ssarg
-ep RÖOS LUnZ yonuabıa ef ısı
-gp5 U POP "uazynu SBur6
-zeds pun ueßunpunyiapey
-n ez ap uapuasıay
-ao vAWOoN JEMZ Yyamabuıs
-wog ne abe Sue]
-UM UPS Pun maıy uapınm
-a4 eb Yyepony Jap Ay
+Auf Kurs
 
-"uspunyis
-2 PEIS augyos asaıp
-m Pue7 ue abuse uls6ß
-#ulß ‘pıog ue JOpadjı
-#1) ale nz use
-waunıdsian Buniejsießag
-“ugnejßun aus sıp
-=yapuıyag sddnıg yauıa
-w en 'swoL Syangaß
-pues wweußorg wep jny
+Auf dem Programm Standes
+gebuchte Törns, u.a. mi
+einer Gruppe Behinderter
+die eine unglaubliche
+Begeisterung versprühlen
+Waren zu viele Crew
+mitglieder an Bord, gingen
+gern einige an Land, w
+diese schöne Stadt z
+erkunden.
 
-SIny yny
+Auf der Rückfahrt gen Ke
+Wurden Crew und Schiff für fd
+lange Tage auf Bomhlt
+eingeweht. Zwar konnten &
+Reisenden die Zeit W
+Raderkundungen und Spaze
+gänge nutzen, doch ein Sch
+Stja eigentlich zum Segeln da-
+iese zeitweilige Langenet
+Yerschwand rasant, alsaufS® 3
 
-159) 430108 Sayyıyosswnas
-sap Öng WeP Jon yauıp Siolue.
-sap Jaqnuabab
-uuep WY9og 'uaßejueyuom
-pun ayejdusjsam Jap
-um uajnejulg SEP
-semja sbuilpsajle 'PuoX N
-Inleaty Sn. Bi
+Dunkeln plötzlich zahlreit! eumes
 
-air MM
+esige Betonfundamente d
+"°9 ZU versperren schienef
+Eine jm Bau befindlich®
+Offshore-Anlage ist unheimiet
 
-ON I
+a
+Ufnahmen für die
+und dem klassischen Abseg®
 
-Jem
+Und Abg
 
 ---
 
 ## Foto 042 (PXL_20261018_133404610.RAW-01.COVER.jpg)
 
-6£
+Es sollte ein Sommer ohne Kogge
+werden Wie das, fragt Ihr Euch? Ein
+alle vier Jahre wiederkehrendes
 
-u pewesuen PUN -woy) uayasuolsiu
-wep jne oßßoy Jalasun uonetuaseid IP
-jem vonyy-.uenespue]" SUaM auıg
+nur
+Brest/Frankreich,
 
-u9Bjo4 auyo SO
-aaıq "sIegayyeyos sap PS uayopue JoP
-jne uaype7 UoypsıWjayds waus 'uaul®
-op ne youd - ‚uaypsıued - uopuabe))
-woule pun uayng UaSSBU Jayne
-yoog ssedien JAld ap Bamyony wep
-ne Jo ssep 'JON ypopal wey SI -uasseJ1®
-nz yn7 op sne 9999 Sp pun uogamy9s
-NZ VavInassım alp Jeqn qoxgnH wauıe U!
-"uoßualöneN uayemaßsne SO Josynjuesy
-2a9p ausuboune JewsıM Ul aB56oy4 421904
-Jap nequpen 'VaYiN3ssIM AP ey 62 we
-anyıedeis Jod yone ai} ayı "uagaßssqn
-‚assem Wweop uawejz WEI! anyıedeis
-weule ww @jne] Jay YOBU 3938071
-NON vSI7 aIp Y9aqn7 UI apınm ZIeN 27 WE
-syaJ2q uuap 'uasysemue yomnap usbBoy
-op awez Sıp los Jyer weseip ul
+Segelfestival in
 
-wuayasıa Sne zuEd
+wohlgemerkt an der Atlantikküste
+gelegen, lud die Kogge als
+Botschafterin der Städtepartnerschaft
 
-(las uosamaß yıyss wap
-jne ey os ssnw sg) Assnw uapıom
-jyosnejaßsne SYueId EITILSTENTIEN
-puaypiossne Jyawı J4DIu Aula ep YYoyıan
+zwischen Brest und Kiel ein. Was für
+eine Herausforderung! Sowohl das
+Geldsäckerl als auch die aktiven
+Koggianer waren In allen Belangen
+gefordert Das Schiff musste
+vorbereitet, genügend Crew und ein
+erfahrener Skipper mussten gefunden
+werden. Erzählungen zufolge scheint es
+ein anderes Größenverhältnis zwischen
+der Kogge und den Containerfrachtern
+auf der Kieler Förde und dem
+Ärmelkanal zu sein... Doch von dieser
+Reise lest den separaten Bericht. Nur
+eines sei noch gesagt: an dem Tag, an
+dem die Kieler Hansekogge in Holtenau
 
-OmoIEOAENIOJ Preis au - mWoysBUe[dUg sog
+ım standen
+u.a. mit
+3ehinderter,
 
-aıyas ap ul SIuIy yoeu abBoy ap
-yer uayn3} WI apınm 05 JNoL-1Sag Ip
-ın} uaßunaJaqloN Jap walS wep Jajun
-uaaıyy @ıp ın) puejs ıyelyns seq
+jlaubliche S =
+ersprühten. die Schleuse verließ, stand, nein
+I er Team ein Empfangskomitee aus
+‚rd, gingen den verschiedensten Schiffen!
+Land, um AR,
+S= I n. Das Frühjahr stand für die Aktiven
+2 dem Stern der Vorbereitungen für
+Kiel ie Brest-Tour. So wurde im frühen Jahr
+für sand die Kogge nach Amis in die Schlei
+f Bomholm
+konnten die
+, Zeit sur
+und Spazier
+‚ch ein Schiff
 
-nz peıs
-wn 'puel
+Das Empfangskomitee - eine starke Folkebootflotte
 
-jUSyIy9S LEJsURPEIySIaR uap uabuıd 'pJC
+verholt, da eine nicht mehr ausreichend
 
-sne sawoysBuejdwg ule WWEMUOS Ma) @l°
-usu ‘puejs ‘yallen Ssnauss AP "usjynıdsıa
-neuajloH uı oBBoyasueH Jajaıy SIp Wep aysıqneif
-ue 'bej wap ue :/Beseß ysou 195 sauıa Jopapuıya
-InN '\youeg usjeledes uap Isa] asıay gu sen
-uspuejs ui
+vertrauenswürdige Planke ausgetauscht
 
-Jasaıp uon y9og ""Ules nz jeUexjaWINy
-wep Ppun »pı93 Jejaıy Jap ne
-wWIEJyDEJHSUIEJLUOQ uap pun Boy Jap
-uayosımz SILENLMAUSJGLH Salapue UIO
-sa Julayas aBjojnz ueßuniyezig LUapiaM
-uepunjeß usjssnw Jeddıys Jauayey®
-ul pun Melg pusßnuaß ayıalaquoa
-eyssnw yjiyaos Seq 1apıojad
-usBugjsg usjle ul ueJemMm aueıbBoy
-uonye @lp Wyone SIE axoespi39
-sep jyomos jBunIepIojsne4aH aut?
-ın) sem ua jely pun Isalg uayasımz
-yeyosieunedejpeis Op uneyeyas10d
-sıe »BBoy eıp PN ‘uabajad
-SISDYNNUENY dep ue PuawaßıuoM
-'yoreuyuei4nseig U! jennsej1adaS
-sapuayayopeım auyer Jain Al® anu
-ug 2yong Ayı Bey) 'sep IM uapıaM
-abBoy auyo Jewwos UIO ayıos 83
+necon musste. (Es muss SO kalt auf
+'em Schiff gewesen sein.)
+
+Ganz aus Versehen?
+
+In diesem Jahr sollte die Familie der
+Koggen deutlich anwachsen, denn bereits
+am 27. März wurde in Lübeck die Lisa VON
+Lügeck nach ihrer Taufe mit einem
+Stapelhub ihrem Element, dem Wasser
+übergeben. Ihr folgte auch per Stapelhub
+am 29. Mai, die WISSEMARA, Nachbau der
+Poeler Kogge. In Wismar ermöglichte der
+Kranführer es ausgewählten Neugierigen,
+in einem Hubkorb über die WISSEMARA ZU
+schweben und die Größe aus der Luft zu
+erfassen. Es kam jedoch vor, dass er auf
+dem Rückweg die Pier verpasste. Doch
+außer nassen Füßen und einem
+fragenden - panischen? - Blick auf der
+einen, einem schelmischen Lachen auf
+der anderen Seite des Schalthebels, blieb
+
+es ohne Folgen...
+
+Eine weitere „Landratten’-Aktion war
+die Präsentation unserer Kogge auf dem
+historischen Kom- und Hansemarkt in
+
+39
 
 ---
 
 ## Foto 043 (PXL_20261018_133413477.RAW-01.COVER.jpg)
 
-AWSUOSIy UeIsUSpaIyasian
-: ! El]
+h
+Haselünne Haselönne hol a
+ms Eck, SO ass
+Übe ndtransports der Kogge such
+schnell vom Tisch war, wenn sie auc Pe
+den Organisatoren als Attraktion U
+diesen Markt In der örtlichen Zeitung
+angekündigt war Die Delegation, die eifrig
+Material für einen Stand zusammentrug,
+präsentierte sich in mittelalterlicher
+Kleidung an einem Wochenende im
+September den neugierigen Besuchern
+kräftig Werbung und
 
-Er un.us, nayu] Aw jsqnıL Jaßaı
-Be ySBuuun]S uS}ysemysınp
-En. wlous Jem yYunyuy Jap
-Be ın} „NPoyasınyny" sog Isaug
-Er 9) zj0J| wınz usyoyBusmyas
-BEN 9 8zo}s pun auajde} aıp Jy9Iaua
-e pun usßej ueylaßasysınp
-e eu pun usßunßuIıpag Ua}SOURU
-2 Iq SuIas Jgqeuo yıyaos seg 'ddeuy
-Bm sep pun puiy }wwoy yoeueg
+des Marktes, machte
+für den Markt 2005
 
-lam Jyoıu yoejuIs sa Jyaß Bunyyaupulm
-Byasıe; sap punsßjny ‘ssnedsbuemz aulo
-Bipeunz »B6oy aıp ıny sa ıqıB AausapoN
+bekam eine Einladung
 
-jneunz uswey usjlor MP UV
-3 er
+Neben dem großen Ausflug in die
 
-un uawgusuapll
+Nordsee und den Atlantik nach Brest und
+Aktionen an Land,
 
-Ay yayıan waßal P
-Hat
+den beschriebenen
+konnte die Kogge trotzdem noch ihren
 
-Wwious yw „allg
-Öyney puis JalH „joıgaß9aS sobuemyps
-NEITEITRIEI SELL jeuey Jay0s
-ug wajle on pun 99SPJON puis 89s1SO
-2 zesusßen wı YbRJdeß uoßunbuıpeq
+regelmäßigen Gästen gerecht werden. Die
+CDG machte auch in diesem Jahr wieder
+ihre Koggefahrt, die Vereinsmitglieder
+genossen das An- und Absegeln und
+einige konnten die Kogge auf heimischem
+Gewässer nach Lübeck begleiten, als sie
+Filmstar im Dreh „Vier gegen Z" wurde.
 
-yapug] vaLapaLPSIEN SE SyLyDSIaBeS ayasyaysıy
-{ HOISIH Pundjapıyy
+Fahrt nach Brest vom 24.6.- 28.8. 2004
 
-uw
+Seit Juli 1992 findet alle vier Jahre in der.
+französischen Hafenstadt Brest ein
+Po seonake, fast schon legendäres
+ime: i
 
-SYSIBISA Leus
+re a statt und dieses Jahr
+Chance dabei zu
+sein (9.-16.Juli).
+Br eslich des
+gleichzeiti
+Stadtiubiläums von
+Brest, findet ein
+deutsch-französi-
+Fe Jugendaus-
 
-ley as
-"uyny
-uayau
+USchprogramm
+an Bord der Kogge
+statt, das g
+wirklich au
 
-aluy En
+Ko, "a
+einen "reise hat
+weiße .„e'gleichs-
+plan gen Zeit-
+Yadn und ist von
 
-no
-S6Boy jap Piog us
-Wwesßoydyssne
-"SNepuaßnp a
-+1S9ZUBJj-Yosjnap
-ua jepuy sog
-von swngjlgnfpeig
+figen Wetter.
+40
 
-uaßılıa
+Im Gegensatz zu,
+d vor allem Engj,
+vergleichsweiss
+Hier sind häufig
+jert mit enormen
+gem Verkehr. Au
 
-zys1aıß
+en geprägt.
+d Nordsee un!
+ein
 
-sep yaıısseju
-. 1 Y
-(unr'gr-6) ues
+bedingung!
+Ostsee Sin
+scher Kanal
+schwierig
+starke Win
+Tidenströmen U
 
-nz Iogep
-ap um
+es Seegebiet.
+de komb!
+nd rei
 
-Hueyg
-uagey
+‚Auch die Jollen kamen zuhauf
 
-Aye
-yer sosaip pun Yejs jensaj sownuew
-
-salepuaßa]
-us sag
-
-uoyas se}
-
-Ipejsua,
-
-'sajeuoneusajuı
-
-eH Uayosısozue.
-Jop UI elyer Jam ajle Jopuy 2661 IInf vs
-
-9002 '8'82 "997 wOA JseIg y9eu uyey
-
-“apınm „Z uabaß Jen" yayg wı Jejswilg
-aıs sie 'uaJIe]baq JOagnT yoeu JOssemag)
-wayssıwıay ne aBBoy eıp uayuuoy abıuıa
-pun ujeßesqy pun -uy sep Lassoueß
-JapaıbjlWsusle\ IP uyezabboy auyı
-
-Jap:
-
-aıq "uapıam Jyoaueb uajse9 eßıyew
-
-Im Jyep waseip ul yone ayyoeWı 909
-
-bau
-
-uayyı y9ou Wapzjol abboy AP UUON
-
-'pue]
-
-pun sag y9eu Al
-aıp ur Bnysnv
-002 PIEW UOP
-
-pun Bungua Biy!
-ueßueıdnau uap
-
-weyonsog
-
-wı apuauapoMm
-
-Jayaıyayelanıı
-Wwwesnz puejs UaUl
-
-"Bnauol
-
-due ap *uonrebalat
-Bunyez UayOIHO ap
-
-10, UonYeNV sie
-jone o1s uUOM u
-
-von
-
-ue UOUONNWV/
-
-uog
-
-u
-
-05 wep
-
-usuageuyasegq Uap
-uejy uap pun @9spJoN
-
-uageN
-
-10} Bunpejug aul® weyag
-ey aypew 'SOPUELN sep
-
-‚aquadas
-
-wel ue Bunpiaiil
-yaıs ayanueseud
-a 10, JeuajenN
-
-7) arg EM ‚Sıpunyaßue
-u ppew UaSalp
-uaJoyesıuedlO uap
-
-em yosıL WOA 1auy9S
-
-syodsuenpuenaaf)
-
-wop abBoy op ven
-Ba aapl alp ssep 08 »3 Kr
-ME yoıu 6a auunjaseH auunaseH
+Norderney gibt es für die Kogge Zunächsl
+eine Zwangspause. Aufgrund der falscheg
+Windrichtung geht es einfach nicht weiter
+Danach kommt Wind und das nicht zı
+knapp. Das Schiff erlebt seine bishe
+härtesten Bedingungen und nach für
+durchsegelten Tagen und Nächten
+erreicht die tapfere und stolze Crew ale
+Schwierigkeiten zum Trotz termingemät
+Brest. Der „Kulturschock“ für die Crew bs
+der Ankunft war enorm - nad
+durchwachten Sturmnächten nun bunte
+reger Trubel mit Interviews, Empfä
+und Gästefahrten. Trotzdem st &s
+Dana vor allem eins: beeindrucken
+verschiedensten historischer
 
 ---
 
 ## Foto 044 (PXL_20261018_133414729.RAW-01.COVER.jpg)
 
-yreg josuı ne WOyUy - UYEPPOU ap NV
+Gegensatz zur
+‚d vor allem Engli
+vergleichsweise
+Hier sind häufig
+jet mit enormen
+gem Verkehr. Auf
 
-"usgey
-youßguus asıey asap ap 'uoßtualuap
-Ne Leyuep um pun ueyogw uassıw
-au am Sp 'yIS Jeyuiy UalleWLıaaS Sp
--uauueds 090'7 @BBoy aıp yey Nuesaßsu|
-uuA] ssuy u: ueße, ueßluam uap
-u ume »6Boy ip uAanyDISEg Jeyansag
+die Kogge zunächst
+ufgrund der falschen
+einfach nicht weiter,
+nd das nicht zu
+seine bisher
 
-ayarssarajul 000€ SIE Jyayı uoßy
-pun uayonseg Uepuszia ue
-aula SO IA 'uaWysunze] u
-jeyosuassim ue a
-Jap uegen "Buryduwg uayaınsun, RL
-ebBoy Jap uslalaq usyeH VOpUBInap9a
-ıyas SsUeH JeP USNEZ ınz gu
-‚ISHNSO LAYDSIBLS Jop ue Lojsog =
-uuA7 s,Bduly puls osionpny Jop Vouyey
-wı JONSqy SypIINBIH Sayom ‚Jeuenb
--Sopereysqneun" Usgey ujssueuey
-uayaıyoW Jon WEYUy Pun ajyoen
-abıyosne] .yUes ‘yoNgeu“ unu yas
-16ioz jeuey J2Q 'WyejuiH Inz Ziesunßsg
-UOSSe,y WI J4ES HYEPENY SIG Tuyomse
-aamıanLU sun JM Usgey atugnsuapı,
-N ue yony uuejag
-aypspyomwiey Sie Inu Yes 'uapuydıus
-nz ‚yosuejeWw, sie Y9OU UaSjaj Uapusde,
-Jossem wap sne uajaın aıp wn Bnuss
-Biyna Jsı sa — uw yalds soyam sep ypne
-pun 'Pung weIsyansampsou sedonz
-'augısiulg dey) Wep oyeu 'zeuswenog
-YOayosıJ usJaULa]y astamsyplabsen uap
-u ayıyossuonIpes} Jap Uye4 Swesumusd
-ip IS1 SSnyosqy JOpuaugsy u LayaıL
-sep usjewiejun Yıawuonaz weßnIemsb
-yw wwejßoldpue] seyung uI3 'sIengse}
-sap undjeyıyy WI ueya}s WEPUFT
-ueuspaıypsıan 0E Sne ayıyosıadss
+und Nächten
+j stolze Crew allen
+rotz termingemäß
 
-eydurg
-yeziayn
+für die Crew bei
+enorm - nach
+ichten nun bunter,
+iews, Empfängen
+rotzdem ist das
+s: beeindruckend.
+n historischen
 
-YMION9Z UP ssniyasqy Wunz
+Zum Abschluss ein Feuerwerk
 
-uayasuojsiy U
-'pusyanıpulaag :S
-sep }sı WEpZION
-usBue;dwg 'smaı
-Jejung unu uajy9
-yeu - wuous
-199 MaJQ9 Sp In}
+Segelschiffe aus 30 verschiedenen
+länden stehen im Mittelpunkt des
+Festivals. Ein buntes Landprogramm mit
+gewaltigem Feuerwerk untermalen das
+Treffen. Ein krönender Abschluss ist die
+gemeinsame Fahrt der Traditionsschiffe i
+den vergleichsweise kleineren Fischerort
+Douarnenez, nahe dem Kap Finistere,
+Europas nordwestlichstem Punkt. Und
+auch das Wetter spielt mit — es ist ruhig
+genug, um die vielen aus dem Wasser
+tagenden Felsen noch als 'malerisch’ zu
+empfinden, statt nur als heimtückische
+Gefahr. Auch an die gewaltigen
+Tiienströme haben wir uns mittlerweile
+gewöhnt. Die Rückfahrt steht im krassen
+Gegensatz zur Hinfahrt: Der Kanal zeigt
+Sch nun „leblich, sanft‘. Lauschige
+Kae und Ankern mehreren
+\analinseln haben
+a Weitere erfreuliche Absteche:
+u der Rückreise sind King's Lynn
+na Boston an der englischen Ostküste.
+Be zur Zeiten der Hanse sehr
+en Häfen bereiten der Kogge
+Mög He chen Empfang. Neben der
+Vorträge, eit an wissenschaftlichen
+Vielzahl teilzunehmen, gibt es eine
+Empfa an reizenden Besuchen und
+gen. Mehr als 3000 interessierte
 
-Jeweßuuus: 201
-use Mayg Szj0lS f
+Besucher besichtigten die Kogge allein in
+den wenigen Tagen in King's Lynn.
+Insgesamt hat die Kogge 2.060 spannen-
+de Seemeilen hinter sich, die wir nicht
+missen möchten und wir danken all
+denjenigen, die diese Reise ermöglicht
+haben.
 
-deysıq Sulss
+der Rückfahrt - Ankern au insel Sark
 
-NZ jypıu sep Pl
-Joyam
+Auf
 
-Ueyasıej ‚op punbjn
-Isyoeunz 3650 @IP
-
-iny yayon WOD
-Louuous yu Yel
-Byney puis JOH
-ENEITENRIEILZCH
-6u3 waye Jon P
-INZ z1esuaße9
+41
 
 ---
 
 ## Foto 045 (PXL_20261018_133420987.RAW-01.COVER.jpg)
 
-® ydıs sıa
-Aune. ih
-= 1 j Bunyeyosag ap ee
-E egıy op vonyerz ayası en
-Be Uupwyse,
+Si T ın enötigte jed
+Die Kogge war unversehrt vom Brest-Törn Die Holzverarbeitung b: gte jedoc,
+298
 
-pun Aszbyg I9eypı
+ter de,
 
-ig ep- WS JOH
+höhere Temperaturen, so dass un!
 
-Rgep sBBoy Jap ueezsßugjuy uap ur
+nversehrt? Nicht ganz,
 
-Wuos Jap JeInIyas sewoys Jenegsjoog
-uuemaßjne
+an Her waren die Spuren am Winterplane ein ee oe
+t ir
 
-Rp ayayıam JaiH 'opınm
+Mast vom Kugelrack wie von einem Biber wurde, was auf rbeits peraty,
 
-Messdwejsjiegiy jne sem 'apınm
-Alps az sesem ul auejdiejum
-®p Jejun ssep os 'ueınjesadwe araygy
-Popal S}bnguUsq BunjiaquesanzjoH SQ
+geraspelt
 
-iuasse;
-3 sep
+Dies ist nun ein Markenzeichen unseres
+Schiffes. Was aber kein Markenzeichen
+bleiben sollte und was auch nicht
+annähernd so offensichtlich war, war die
+Tropfsteinhöhle unter Deck, die Wasser-
+bahnen, die bei nasser Witterung
+auftraten. Dies war vergangene Saison so
+schwerwiegend (zeitweise glich das
+Mittelschiff einer Christo-Installation), dass
+Abhilfe geschaffen werden musste. Viele
+viele helfende Hände waren bereit, unter
+der Winterplane Decksplanken zu
+erneuern, einige weiche Holzstellen zu
 
-NZ usjlejszjoy aydem abıua wenaule
-nz uoyueldsyoag, Suejdiajuyy Jap
-Jayun 'Yeraq sem opueH Spueyay 9)
-aA SSNW UHpIaM Uayeyosab SUlyay
-ssep (uoneyejsup-ojsuyg saure LIEBEN
-sep uud asıamyı Pusßamuamyos
-08 uosıeS auaßueßien sem sag uselyne
-Bunssyıy Jasseu !0q ap 'uauyeq
-JasseM IP 'Y9ag Jalun aygyuıasjdon
-ap JeM em YOINyOISURJO OS Pursyeuue
-Wplu one sem pun ayos uagıaq
-uoypIazusyyeyy uloy Joge sem 'Sayıyag
-Salasun UAyDIOZUSYIEY UIe unu Isı sag
+aufgewärmt wurde. Hier
+Bootsbauer Thomas Schlüt
+in den Anfangszeiten der
 
-uodseio6
-Jagig WaEUID uon aim YoeIlaBny WoA IseyN
-we ueinds Ip ussem Jequyaıs Ind uuap
-zueß JyoIN duyasswAun "Hysxadyanınz
-WO L-ISSIG WON Hyasıanun Jem 88504 Id
+werkelte der
+'er, der schon
+Kogge dabei
+
+Hier Steine - da Biej
+
+t Michael Orgzey und
+MN war dies die
 
 ---
 
 ## Foto 046 (PXL_20261018_133422566.RAW-01.COVER.jpg)
 
-uejd yoeu uajaılaN wu es
+> UEllANIE
 
-one aim WIOHSWWOS N
-ER menmseid saßueyajyaw Ul® ee
-uapunj)oß punsg JOp ayuuoy 1sq°H N
-yequayneyyayy Weule 199 133 'uayeuyi
-jnswe moweM J@P wonajsuy WIeg
-ap JMOyPSPIOWPEg wap u Swejgold
-sa geb uoßeyuadoy yoeu Jawwosyundg
-wı swol sep pusiyem UOUOS
+vötigte jedoch
+jass unter der
+Zelt errichtet
+itstemperatur
 
-ap jez sie uuep oyey BulgoyÄN
-uı swnauszisyejaniy Sap yansag
-wauıs uw ‘owieyy pun usbeyusdoy
-Weu ujasu] UaySIupP Ip Yoınp
-WOpSWWOS Jag 'yalassılBıara ILLOS
-pun -puim “uoBßaJ Jem USSIOPUY LENSUUO
-SUEH uon saßejsungsg ‘002 Sap SSejuy.
-sne usbeyusdoy ypeu no| @uIg "uepIem
-Lunyaßysınp aynay sıq pun uapınm
-uauwousßue Inb alp 'uaınoyaßag-yonn
+er.
+Das Jahr hielt auch schöne Dinge
+werkelte der bereit: Es war das erste Jahr der After-
+ter, der schon
+' Kogge dabei
 
--J9yV JOp Iyef ajsıa sep sem sy IM
-aBbUIg SUgyas yone ya yer 0
+teine - da Blei
 
-“ue
+‚el Orgzey und
+r dies die
+der Arbeiten.
+affung raum-
+‚ehr spannend
+Saisonbeginn
+>h heute noch
+/inters sehen
 
-apug sep
-au Bunyejs
-seh 1z195aBie
-pun uaqjojsson
-wuı ‘oBBoyasue
-BursoY HOPNY
- yasayersuap“
-jyoıu ajaın uap
+den viele nicht
+‚dienstälteren;
+Rudolf Rösing;
+ansekogge, IM
+verstorben und
+eigesetzt. H@
+tattung kein@
+ote Luftballon®
+das Ende de®
+‚an.
 
-uayas Sıayuıy
-yoou aynay y<
-uuıdaquosıes
-puauueds ya
--wnes Bunye
-usyagıy Jap
-ap sap ı
-pun Asz6ı0 ja:
+Work-Segeltouren, die gut angenommen
+wurden und bis heute durchgeführt
+werden. Eine Tour nach Kopenhagen aus
+Anlass des 200. Geburtstages von Hans
+Christian Andersen war regen-, wind- und
+somit ereignisreich. Der Sommertörn
+durch die dänischen Inseln nach
+Kopenhagen und Malmö, mit einem
+Besuch des mMittelalterzentrums in
+Nykobing hatte dann als Ziel die
+Hansesail in Rostock.
 
-tg ep - auıaı
-
-I9gep abboy
-Uoyos Jap 'Iol
-op ayayıam
-
-u
-
-LITER NEISIE
-Iaysıuo NaZ
-49p ıayun sse|
-WPopal yungL
-
-Annam ©
+Schon während des Törns im
+Frühsommer nach Kopenhagen gab es
+Probleme mit dem Backbordschottel, die
+beim Ansteuern der Warnow erneut
+auftraten. Erst bei einem Werftaufenthalt
+im Herbst konnte der Grund gefunden
+werden: ein meterlanges Plastiktau. Man
+sieht, der Sommertörn wie auch der Rest
+der Saison verliefen nach Plan
 
 ---
 
 ## Foto 047 (PXL_20261018_133428786.RAW-01.COVER.jpg)
 
-usjssnw sBuIPsay
-unp yyeg ap am
-sogquapuos uauuoy
-m ypeuep pun UI0S
+des Jahres 2006 ging zum
+mittelalterlichen Hafenfest nach
+Bremerhaven, zu dem sich ale drei
+Koggen, Ubena von Bremen, Roland von
+Bremen und die Kieler Hansekogge. N
+Cuxhaven trafen, um von dor aus im
+Verband nach Bremerhaven zu segeln
+Das Wetter spielte mit, „Problem war nur,
+dass wir zu schnell waren. Es wurde von
+Zeit zu Zeit das Segel ein bisschen
+aufgegeit, damit die anderen wieder
+aufkommen konnten. Alle drei Koggen
+passten gemeinsam In die
+Schleusenkammer zum Innenhafen
+schade, dass ich es nicht selbst sehen
+konnte, es muss beeindruckend gewesen
+sei Wunder also, dass man von
+vielen Schaulustigen erzählt. Für einige
+Crewmitglieder ergab sich der Besuch des
+Deutschen Schifffahrtsmuseums, eine
+Begegnung mit der „Urmutter‘ unseres
+Schiffes. Hier eine Zeichnung:
 
-E Sonnen ANZ Bingsuajy ui vo;
-nz sanad so Ianeuo "(iyoyam) u
-PR) uopießyng uon se
-op ul UaInssajg LElySIe] ınu zu Es
-ee) uesomaß uunig JOUOSYpemaBeT
-se you ep auum
+Ein Tom
 
-"yoınuaß
-eseBue wioIsaneun Yonuabıo
+Eine andere Attr
 
-amipeueg Buyduwso 18anı] oJuyomi
-gun OM ne Y90)SON yoeu TeSaan Be
-yesuawaß alle uaypeig puagalıyasuy
-Bags WOSISSAMEASIIAS Josun Ele
-yewesulmWwoß ınz Y9san7 uon esı] ap
-gun uaB5oy IB1p ap yaıs
-usyen '@650Y Jeleod Jap
-meqypeN eIewassim"
+akt
+waren Filmaufn; n
+Channel, für
 
-Op Yyejuojßunr
-nz uuSp 'uazyos
-zwsiy U 3m (use
-pun) uaylom seuyer
-sp Wundayoyenesoy
-vausßıe usuyosun
+des Sommer:
+s
+Binden für den Disney
+en mehrere Trailer
 
-zZ Ualyoaı
+Ein H
+'öhepunkt der Saison war d
+jer
 
-usjenue
-»pueuiousßaß „seoey“
+44
 
-ENTE REINSEIEHNNN
-ap oddng- s,esuawy
-BIP jne als Jen) sneyay »PIQJ Jejaıy Jop
-ine Bay waryı Iny 'WONUOJJ Loy uyer
-009 uaIzI2] Jap uaßunysIımug uap W
-26Boy sıp apınm Isyoeunz 'UIOHaWWOS
+Sommertörn. Zunächst wurde die Kogge
 
-142
+mit den Entwicklungen der letzten 600
 
-J4Op ıe
-Mm wosieg Jap Pundaygy, ug
+Jahre konfrontiert. Auf ihrem Weg aus
 
-k lauue:
-DUSIQ OP in) uowyeupneug re
+der Kieler Förde heraus traf sie auf drei
+America's Cupper, de
+in verschiedenen
+„Races“ gegeneinander
+antraten
 
-SIEWWOS sap uonyeny Byapue EITE
+Unseren eigenen
+Regattahöhepunkt des
+Jahres wollten (und
+taten) wir in Wismai
+setzen, denn zu
 
-Bunuypisz Sur 10H "SOyIyOS
-sayasun „onnwin’ ‚op mu Bunußaßsg
-aus 'sWnaSnWSWyENNMPS UAMSINaG
-sap yansag Jap yas geb3o Japaubinumey
-Bu In "NyEZIS UOÖNSNINENIS Uaata
-uon uewW ssep ’osje Japuny Loy "UNS
-UasOMab Puaspnpuaag ssnu sa UUOy
-uayas Isqjos Iyatu sa ypı ssep 'opeyos
-usjeyuauuj WNZ 1PWWENUASNEIUS
-aıp u wesuweß uejssed
-uobboy Ip uy "URUUON vaumorgne
-‚opaım uSOpue MP uep 'oßaßjne
-uoyossiq wo jeßas sep wez nz 102
-uon apınm 53 'ualem NaUy9S NZ am ssep
-Inu Jem „wejgorg? Yu aNaıds Jana SEC
-uaßas nz uaneyawarg peu pueqia\
-wı sne YOp vor win usjel UOAEUXNI
-un 'oßBoxasueH JAMM ap pun vawag
-uon puejoy 'ueWag UA eusan "Wabßoy
-wıp ae us wep nz uorued
-yoeu jsajuojeH uayaıaauelaN!!
-nz Bub go0z sauer sap wm WB
+Jungfermnfahrt der
+„Wissemara‘, Nachb&
+der Poeler Kogge, trafen
+sich die drei Koggen und
+a von Lübeck zur en
+a Unser Selbstbewusstsein sded
+EL nchleßond brachen alle gemeinsaM
+au Brass nach Rostock auf, wo u
+A hnte Trubel empfing. Danach w#
+Sieenich Urlaubstörn angesagt
+an ich, wäre da nicht ei
+a orgewachsener Sturm gewesen, der d®
+Kane, IR Nur leichten Blessuren in 9
+an A von Puttgarden trieb. Dee
+N rklich!), erlaubte es Petrus ZU
+Zeit in Flensburg zur Nautics a
+
+sein und danach w
+konnten Sonderbor
+wie die Fahrt dur
+Allerdings mussten
 
 ---
 
 ## Foto 048 (PXL_20261018_133430671.RAW-01.COVER.jpg)
 
-usyonıpsne
-ydıu y2op sa ueW UUByY JBUOYIS
-„3990Y3SNYH Jejely Anz Bunßieunz
+Zunächst wurde die Kogge
+wicklungen der letzten 600
+niert. Auf ihrem Weg aus
+srde heraus traf sie auf drei
 
-say) UI Layosuayy UaJSYPNPaIyISJHJUn
-sıp Jepuıqen 33 sajapuosag
-sema IS UIJBA Jasaip "JeIy Jem LIEBEZ
-NZ BuyO uSyeH usp ul Jopaım Jayoıs
-pun yaılypy yıyos saselp als ajypeıq
-Z0| Wwnz usssnBueßey pun uaw
-IMS Ually 'Pusyonıpuisag yem M8I9 alp
-pun weßue| jıas Beyeyy SlsUsssSIyäsag
-pun srsBıpum Sjsjaußesyen
+America's Cupper, die
+in verschiedenen
 
-nz Jopaım pjeq Jim uajssnuw SbUpANY
-"Pung-uasiy uap yoınp Ayes ap ar
-usyaıuse osuage Buogiapuos uauuct
-u Jeßiynı sa apınm ypeuep pun Urs
+„Races° gegeneinander
+antraten
 
-Sonnen INZ Bingsuaj4 ur
-EZ snnad sa aneus
-In0Q ga uepseßyng uc
-yap U! uaınssalg ualy9ıa] ır
+Unseren eigenen
+Regattahöhepunkt des
+Jahres wollten (und
+taten) wir in Wismar
+setzen denn zuf
+Jungfernfahrt der
+„Wissemara Nachbau
 
-‚op 'uasaMaß uunIg sau:
-ya ‚you ep auem
-besabue wiolsgqneun
-em vpeuel Buydwsa jsanı,
-sun OM ne 490504 yoeu
-wesuawaß ae uaperg pı
+der Poeler Kogge, trafen
+sich die drei Koggen und
+| Lübeck zur gemeinsamen
+ser Selbstbewusstsein Steg
 
-ans WISSISSNMAIISqIaS Jos
-uawesumawsaß ınz Wan] ı
-pun us6Boy ı23p ap yaıs
-uayen ‘36604 191804 Jap
+ind brachen alle gemeinsam
+nach Rostock auf, wo Une
+Trubel empfing. Danach ”
+Urlaubstörn angesa9”
+wäre da nicht
+ner Sturm gewesen, def
+ir leichten Blessuren \
+on Puttgarden trieb.
+erlebte es Petrus =
+in Flensburg zur Nautic$
 
-nequdeN 2IeWwassıy“
-Jap vyewajdunf
-ınz uusop uszjas
+Kogge-New
+zitieren: „Wir
 
-ewsiy uw am (usjel
-pun) uayıom sayer
-sap Wundayoyeneßay
-ususaßıa ussasun
+unsere
+prüfen
 
-usjeue
-»pueulausßaß „saey”
-ususpaıyasuaa ul
-ap 'waddnyg s.esuawy
-I8ıp jne aıs je) snesay apıc
-sne Bam wauyı Iny Wonuc
-009 us}zj0] Jap uaßunppom
-a66oy aıp apınm Isyaeunz
+fi erste
+bstand de
+verregnetste windigste ünd
+
+beschissenste Maitag seit langem und
+die Crew war beeindruckend, Allen Stür.
+men und Regengüssen zum Trotz
+brachte sie dieses Schiff fröhlich und
+sicher wieder in den Hafen. Ohne zu
+Zögern war klar, dieser Verein ist etwas
+
+und danach wurde es ruhiger. Wir
+
+konnten Senderborg ebenso genießen Besonderes. Er verbindet die
+we die Fahrt durch den Alsen-Sund. unterschiedlichsten Menschen in ihrer
+Allerdings mussten wir bald wieder zu Zuneigung zur Kieler Hansexosse.“
+
+Schöner kannman es doch nicht
+
+ausdrücken
 
 ---
 
 ## Foto 049 (PXL_20261018_133444604.RAW-01.MP.COVER.jpg)
 
-usıno] ®S2Ip y2ogq
-abe] Sp
+‚Arbeiten im
+Winter
+mmer
+Das
+erteam
+ätestenS
+merregen auf
+siß jedelt das
 
-nanyalyd J2!y yone
--ueydoıgaßjne WENEWWD
+gen Koggejubiläum wurd
+Enals Holzbootsbau für Kinder ! e schon
+/olg angeboten mit großem
 
-2002 u yone apınn
-yezaunnoy Ip In Uyo7 sıy
+2? OD) \
+nal = NOSIOCK
 
-‚puyy Biuom u
-alyan esieiyony aıg "ue zyejdeßar] we
-Y2ßaS sejun (JapomuIleyag exe apOlyas
-Suuos @ıp) uuep uswey pun SUENyNE
-Bey, SIp sem JM usyojow ‘puels
-Ölsunßun puly Jep eg ‘uaßlez nz saip
-ZeBIU3 usp Jopsım Jewwı usgey pun
-Husjeßag us puis m 'yonye} UEypssıq
-Vs apınm usneyswasg ul YUnyUy
-@Pp og Lewyau oipn)g sul Aw Ua)SEY
-U Wenpueyy ususßunjsß sJopuosaq
-Jon uswyeupny aynb sJepuosag
-om Pun pıog ue YaN Sep weaL
-Nesuls, us sem sa ‘uleu "uepey JUJOHaN
-Heßeg sep yaızoid um jıam JyDIu Y9OP
-“elBllUIS Ueneyxng ul aBBoy ayzyel Sie AM
-er 'uuep Bej ınoj Jesalp aysapuosad
-a HEN uayosuojsiH wunz uaneylaWeldl
-De reyxng pun }pejsyonI9 J2AN KuER
-Ru ngsßusyey wnz BinqweH M Ein
-na SRSISO-PioN uap yoınp Jyer 595°:
-Bu ul ago, aysıa 20
+nn.
 
-SuunE
+ne he,
 
-N N Sa
+u,
 
-an Ze
+SEN RETTET
 
-Eu
+er erste größere Törn gin,
 
-ze
+Nas Jahr durch den Nord-Ost ad
+nach Hamburg zum Hafengeburtsg,
+dann über Glückstadt und Cuxhaven n,
 
-AOTSEOSENSIN,
-SON =. l
+Bremerhaven zum Historischen Markt pi
+Besonderheit dieser Tour lag dari 4
 
-WOJO Yu Japuny ı Lengp6ue Bipyz
-! ny ni
-Uoyos apınm Wnejanf person en
+wir als letzte Kogge in Cuxhaven ein
+doch nicht, weil wir plötzlich das Sayeh
+verlernt hatten, nein, es war ein Fernseh.
+Team des NDR an Bord und word
+besonders gute Aufnahmen von
+besonders gelungenen Manövern im
+Kasten mit ins Studio nehmen. Bei der
+Ankunft in Bremerhaven wurde &
+bisschen taktiert, wir sind ein Segelschif
+und haben immer wieder den Ehrgeiz
+dies zu zeigen. Da der Wind ungünstig
+stand, motorten wir etwas die Weser
+aufwärts und kamen dann (die Sonne
+schickte extra Scheinwerfer) unter Segeln
+am Liegeplatz an. Die Rückreise verlief
+mit wenig Wind.
 
-yone SM 'sun zu uuop
+x.
 
-n Bid SEnupu au
-BIO BppnuenoogzioH un) Gun sw
-Jeuls "UaroNusseud uewaig w Weog op
-Ne Ayelyns wı ups Josun ualuuoy ayı
+LELIL
 
-zes
-uoleS wı synd uazıet
-i x
-ayagenonu9 N N
-ae ‚9p9 gas IUOH
+wurde auch in 2007
+Sommertörn aufgebrochen.
+eingehum ah Ahlanı Pflich
+Wis unden wie das Koggelr®
 
-em Waul
+Mar Über drei Tage U
+Doch diese Touren
 
 ---
 
 ## Foto 050 (PXL_20261018_133447203.RAW-01.MP.COVER.jpg)
 
-"uaynubag Jawwuny
-PJeyuisy uUEWSJOOg UanaUu UaJasun
-us}uuoy JM pun usuuoßaq apınm
-abBoyssueH ayasuojsiH UISI3AIOPIQ
-pun yegıy ul Puseßnr aulelen
-Jap Bunseunjynujsun aıp 'apuayy snejy
-ve uelsog usules geßiegn uuew
-SUEH :ueßunsspugsen pue] wep
-ne yane se geß yerp wassip wj
+er Gelegenheit zu Werbung, aber
 
-SLUyEyyonInz usjeyye
-uayı u als Jonag ag! DERIRN
+imm zum Auffrischen alter Kontakte
+auch ein Koggetreffen ist meist der
+Un ttahöhepunkt einer Saison, so
+e
 
-un elooquayaeıq nz Byazyyoaı
-En. Hyejaag abıynı uayoo
-1 Jim uoyey l'eSasuey, uodgen
+(ch dieses Jahr. Das Bierfass (es war
 
-yone jewsaıp Jep Yen 'uauuomeb
-ISEH USJIEPUE Jepo LaUIE USp uoyos
-0S JIM Uusgey Jyaıajjein — Juesoduı
-IS! USJneJLUIZ saWwesumswaß ul uuap
-"uayal} nz Mmoulem Jop Bunpunw J2P
-ue ysıs wın ‘zıny Inu yoopal ‘JewsiM
-yoeu yaIıs usJuusN ueBboy AIQ
-ydoyad
-use yıı ssejeg ejlon auauuomab
-Sep »pınm spusgy iyo124610H9
-ueiem JM 'uepıom Jyosnejabsne
-ssejsBuusy (elf unu) en
-ul ueßeB pun uepıom Hagtodec
-804 won ayen ap ul 2
-uon aylos (yaııya ‘9a] ulaJayuJoN IR
-JeM se) ssejlaig seqg ..yer SasalP N
-0S ‘uosıeg Jsule Yyundeyoyen® un
-Jep Isıaw ısı uoyanebboy ul P
-Spleluoy Joye uayosuyny WNZ
-Jege ‘Bungioy nz yayuabal3d
+er vornherein leer, ehrlich) sollte von
+nat in die Nähe von Poel
+
+transportiert werden und gegen ein
+
+jeeres (nun ja...) Heringsfass
+usgetauscht werden. Wir waren
+erfolgreich! Abends wurde das
+gewonnene volle Bierfass mit vielen
+‚eköpft i
+
+ee Koggen trennten sich nach
+
+Wismar, jedoch nur kurz, um sich an
+der Mündung der Warnow zu treffen,
+denn ein gemeinsames Einlaufen ist
+imposant — vielleicht haben wir so
+schon den einen oder anderen Gast
+gewonnen. Nach der diesmal auch
+
+nebligen Hansesajl
+hatten wir i
+Wochen fühige Seefahrt, Fi
+
+rechtzeitig zum Dr.
+achenb
+nach Flensburg Er Ootrennen
+
+Norden fest,
+Heimathafen zurückkehrte,
+
+Im diesem Jahr gab es auch auf
+dem Land Veränderungen: Hans
+Billmann übergab seinen Posten an
+Klaus Mende, die Umstrukturierung der
+Vereine Jugend in Arbeit und
+Förderverein Historische Hansekogge
+wurde begonnen und wir konnten
+unseren neuen Bootsmann Reinhard
+Kummer begrüßen.
 
 ---
 
 ## Foto 051 (PXL_20261018_133454396.RAW-01.MP.COVER.jpg)
 
-Wwıyysıds
-Spınm aA
+und Kampen mit von der Partie,
 
-9 yoeu snöny 2 {
+ach stand die Hansesajı R
+En Zettel. Die Kogge ist Stam 0%
+der Warnow und die za
+Gästefahrten waren und Sind g bie
+gut gebucht. Doch die Hansegaj
+Skipper und Crew extrem anstr
+und so ist man froh, wenn Runen
+Bordalltag wieder ‚einkehren, Das
+diesen Sommer ‚Ist sehr launisen,
+unser Skipper Michael Orgzey Br
+manchen Fluch über den laus
 
-3 Y opu3 366
+mittelfristigen Kar rerberich
+Im weiteren erlauf s
+x an der x Kl. airch die Nacht war Lippen Mi
+jckfahrt nacl
 
-eu yonınz N Su
+nach Rügen,
+r leider eine reine a auf a = =
+Bean a war der Wind 5 sich dann auf den weiten Weg
+hrt. In: ss
+ee Wochenende on an u Se Westen, genaler gesagt
+a
 
-5 en Ueuuayooquaypeıg
-Be ıp ewJız
+nach Fı
+seglerische Dort war die Kogge Basi:
 
-M u
-r SA uop ne uuep yoıs
-SUSPPIH ne Juoywun)g
+i in Firma, die
+ne Drachenbootrennen .
+kam. Aber ging es dann zurück nach Kie),
+immerhin hatten Kogge Ende August, nach 4
+wir eine schöne Fahrt, im Heimathafen festmachte,
+Zeit, viel gelernt
+und aufgefrischt Viel
+und bei der
+Regatta als
+Trostpreis eine
 
-aM:
-ss Ba, ou yoeu 8bBoy
-yoen, „eisytem wı “ueddı]
-Sne] “egioyayı FERNEITENTEN
+wurde schon jm Wir
+filmen geredet, von Holi
+Irgendein Filmstudio wollte
 
-u
-hozın san yonıy uayouew
-n Psiune; N lBeysıyy Jeddıys Jasun
-MN Seqg en IS! Jewwos ussalp
-u um uIO Jopaım Beepsog
-Is Sue way yoy uew jsı os pun
-s  Sasue xe Meg pun seddıys
-Ban Se SP y9og Yyangaß InB
-Slle ° „> Pun ussem uoyygjalseg
+J Hood Film mit Russell Crowe i
+(stige Säge England oder Wales drehen und
+gewonnen. an der K
 
-3 mowey\ Jap
-a a SBBoy aıq jeNaz wap
-SOSUeH Sp puejs yoeued
+©9ge interessiert. Kl
+: Und Martina Matthäi schrieben
+'Sste die Kogge Finger Wund. Leider
 
-"uauuom,
-Sörs ebnson
-SU stedhson,
-Sie eyeßay
-SP eg pun
-4yasıyaßjne pun
-JU19]96 Ylaz
-SUOYOS aus yım
-vopey ulyewwı
-Jaqyv 'wey
-zıny  uayossıq
-uI8 Japıe] Madsy
-ay9asıl9bas
-ap ssep
-os 'nej} Jyas y9oP apuauaypoy Wasaip
-ue puyy Jap Jem Jwesadsu] yeHolopN
-auıaı aula Japıal Joge UOYISIOP
+Permanent vertröstet und
 
-JEM Jy9eN alp yaunp jely YOBu NUBPF
-) eyebauuny Jap Ve
-Bloqiapuog Jaqo Sun
-
-P0M
-
-ag "uawye
-om 'Bingsuajg 42
-ajyaeıq
-aınb
-
-PEIELBZ]
-sep jne
+die
+ind as Holz un arteschleife verbannt. Doch dann.
 
 ---
 
 ## Foto 052 (PXL_20261018_133456688.RAW-01.COVER.jpg)
 
-yapınm jopo39d
+Fluch über
 
-yosaıp sne os MM
+igen Wetterbericht“
+m weiteren Verlauf
+nach Rügen, wettere «
+t auf Hiddensee ab und a
+n auf den weiten Weg nad
+genauer gesagt nach Flenstu;
+die Kogge Basisstation für em
 
-pun uopınm woısa6 Bundnpan INZ
+die am dortigen
+ootrennen
 
-u) ayediwoy Jar SUN
+nde August, na
+leimathafen festmachte.
 
-nz. JpIPRNE
+de schon im Winter
+geredet, von Hollywood =
+Filmstudio wollte einen
+t Russell Crowe
+der Wales drehen und man
+Klaus !
 
-umssnw
+Lisa
 
-‚e uarem ujasusbunney a0 *®
+von Li
 
-yeyosab ypou ISUOS sem
+aufregende, aber auch sehr
 
-puejsjus „doy auyo
-4 199 umpIppe, van unassıdoy
-von Buns] Jap Jun UMPOMyUSGA
-apusßuansue yss yane Jage "opuaßajjne
-wmz wauueßag . von esı]
-* jap pun „elewas‘ uwowwesnz
-zuusdio peu Ujeyat uoßeWways
+Drehwochen unter der
 
-,g ‚uuegian 2
-u PEIELDLTENN
-‘pun,
+Regisseur Sven Taddicken Der
+jeter ohne Kopf“ entstand.
 
-ayıom oIPMSWNS
-jo uon Jopaıaß
-wı Ooyos @p.
+wa:
 
-Supeunsz) uajeyjewie;
-Mom » ypeu snöny apu
+\s sonst noch geschah.
 
-Br Wyeujls} USUUSOO
-WdiJop we sıp
-
-sn vonejssiseg s8Boy Sıp
-fegsusl4 yoeu }Besaß Joneuaß
-
-Aypuagiapayı
-
-USp ısan
-2610 = yonıy
+Die Rettungsinseln waren alt und
+mussten ersetzt werden. Ein
+glücklicher Zufall wollte es, dass
+uns vier kompakte Inseln kostenlos
+zur Verfügung gesteit wurden und
+wir so aus dieser Kostenfale
+gerettet wurden.
 
 ---
 
 ## Foto 053 (PXL_20261018_133503176.RAW-01.COVER.jpg)
 
-MONUSUO nz pun vom
-3 40 JBUNDIN "Uaypysuoges
-DOW INE Iyarzuay, URp wege
-BueI0B nz PuenoQ pe as,
+mmens, dass der
+Berater
 
-yosnuane Isupgdow un
-Bee won yazeny oRpom
-uU YOOSOy Ui IESSSUCH a9
-EnZwN Je &p u 00pı 009
-5604 SP NWoyag 602
-nz uoßunßupeg unpyme
-n vgejöwer] 3aur0 PIE BPOEE
-1 ap Warsuny abuse
+eingebaı
+getestet und unser Maschinist Dik
+Schulze-Laging konnte sich entspannen,
 
-oe
+Nach dem Auftakein Jann
+“ein begann ei
+Intensive Segelsaison Teig
 
-un soury alp U!
-Dal oe
-‚nd wi =
-u 1omz. WI En
-Jap son zn? I
-rg
+Noch im Mai zog es
+Führung von Skipper
+durch Nord-Ostsee-Kana
 
-uı9JonJaP)
+uns unter der
+Michael
 
-we u Joge
+l, Eibe,
 
-] BundayoH wunz B6Boy ap 9y
+in Stärken um
+die Nordsee,
 
-J0poım Na Voypyssog U dos MPoM soray OP Ion zny
-VOrom ou, oo hr OpJoN ap
-OAWardER, eunoy om 0 1m uoboy
+Kurz vor der Kieler Woche sorgte eine
 
-u
-yeu oBBoy a ano nz ı
+50
 
-UBuauye;
-mu ıom O6Boy 91g "uoßag na MED Fu
-Rasa peu Pugiyasinag
-wie Jep yne
+der Kogge gemalt
+den Kieler
+fanden die Aktion g:
+Gelegenheit ihr und “a
+Klassenkameraden zu zeigen, wie eis
+echte Kogge ausgesehen hat
 
-gun BAdLLOUENTIER Pe)
-" SSjIasequon InB voylayjozug
+Die Piratentage in Damp, die Ki
+Woche, der Beginn des Sommertörns mi
+der Anfahrt nach Rostock und de
+HanseSail selbst wurden intensiv %
+Gästefahrten und OpenShip gemsz
 
-Wonnysıp gay sag
+Dann startete die Kogge zum Höhepunkt I
+der Saison, I
+Der heiß Giskutierte, aber in alle
+Einzelheiten
 
-"uosieg jap
-aners uueg
-ua diusuado pun voyyepseg
-3 nsuowuı Uapınm 1S9j05 jesosuey
-pun YWolsoy yoeu Yyeyuy Jap
-BU SUgyaWıWog sap uudsg sep oyom
-ap 'dweg ui Sberuseug ag
+gut vorbereitete ,
+Experimentaltörn- begann. Ulrich
+Ziermanns Idee war es, die Kogge ohne
+at Yon Maschinen und modernes
+'gationsmitteln iten
+Be auf der a
 
-Vey ueyasaßsne aBßoy ps
+t kurz vor der
+m „Zwölf N
+der mit Beteiligur
+gedreht wurde Is
+indie Kinos und f
 
-= m 'Uoßiaz nz USpBJOWeyuassery
+QurEsperimentaltörn die Ic
+Ga m einer Langfahrt ı
+aierichen Bedingungen zu
+209 bekommt die Kogge
 
-pun yyı 1layuaßajag
-Pun InB uonyy ap uapug;
- uSpuyen Joy up
+dese Iiee in die Tat umzuset
+de Hansesail in Rostock nim
+wxchige Auszeit vom alltag
+um möglichst authentisch
 
-yewsb aBBoy Jap
+Vedy auf Gotland zu gelang
+em den Verzicht auf Moto
+tonshifen. Nichtmal ein K
+werden und zur Orientieru
+sand und Sterne. Allerd,
 
-es
-a
+Un Perlahrene Mittelalte:
 
-VORIESHBOG sy:
-IS Hua weßag UyeyNy wop wen
+mer Uhr, modern:
+Mkochter
+Melange
 
-VOUVedsjyn yars Auuoy Sußer-szinyog
-
-‚Un pun jasojoß
-Nnegaßuıe oninz
-
-soldwung voWLems6
-Ps ap uoem bes Psinopnay
-Me vew am SU] Ur jpg“ vapeman
-Yaınzıaı usgeyson sasaıp meiag
-
-Op ssep suawun
-WOg psnejsny
-wnz sun wu uew Dun Usssaluez
+Nahrung des 2
 
 ---
 
 ## Foto 054 (PXL_20261018_133505442.RAW-01.COVER.jpg)
 
-on WO ‚ne vos
-ans ER  nsuaiet
-„uoptaua®S;
+machen und die Seekarte bleibt
 
-‚dsne aßuıg ayapue pun U907 sep uapJam
-= zaıon erg apnayyon PUN abıos sne
-Bunyasayy auıa yas waypew 'pam valepasds0e
-az abue] ıny auydseyN aıp pun uapıam 123859
-jabas aıp punsjeng Jon SIV Bueßsny wassımaßun
-u Bam veßuej ws 00€ vap ‚ne mas) abydoN-EL
-ap yars 1pew gig) Wy 'Bunyenug ‚ayuuedsaß
-IIOR 08 ypne sage puis uauegaiugeßwisyeg SP
-isgles pun ma,9 ig 'qe yaınnap Jaydis Jayejanın
-wep ssgnueßsb us nz Yeyauaßsne Bueßsny
-wessimaßun yı asıoy Jeula |UNJB9 Sep Yapıılı
-Ulssuapueyion Jyı Jege 'uajlasBuls jeNON WI Inu
-man2j1020y ap 108 yaımen Yaydısan Biyewiaßaı
-ebeyanan pun Jyayıay 'SByIUOS Sp LoNIsog SIp
-opuysg pJog Ue Maysıl0109 aus yaıs ep 'JuBIl,
-Jenaiusgy ua asiay, Jessimaß ui jsı Jenajuagy
-Jssun negeßsne you el Jojo uep Jım uegey
-MOD Wnz Jaqy 'apımm wauyn) ISNLBASYIyaS
+KO), h:
+U ah:
+N ‚noch gesch Tages unzugänglich. Ai den Rest des
+Ru Problem seh IS insgesamt größt
+6” Mende hat sich aus Kongains ann wir die mangelnde Fähigkeit 22
+ung jm ‚Na N Gründen von seinem Umstandefen ln zu kreuzen an, Dieser
+Goethe. Aus zeitliche‘ ai Geschäftsführer und eventuell lange fe bei der Navigation
+Shen Frühen posteN ogen Seine Aufgabe Letztendlich kann nie ! vor AR,
+1nsge ger a von Charlotte Hamann Bea Sn in eine unmögliche cken 2
+ga & wu n, die ohne Maschi
+Ken gesten jpemommen Schiffsverlust führen wurde: A m
+te zu Malen DB Zusammenlegung der haben wir den Motor ja nicht ec ern
+a Bilg vr ‘ aahe „Jugend in Arbeit“ und „ Abenteuer ist in gewisser Weise ein Kae
+S wurde ; rderverein Historische light‘, da sich eine Cortrollerew an Bord befindet
+gezeigt. w Fö \ogge‘ kommt voran und die Position des Schiffes, Verkehr und Wetterlage
+d hatten." Hansekog dem Abschluss regelmäßig überprüft. Natürlich soll die Kotrollcrew
+und ih Ss steht kurz VOT nur im Notfall eingreifen, aber ihr Vorhandensein
+ten . Der Film „Zwölf Meter ohne Kopf“, mildert das Gefühl einer Reise mit ungewissem
+Ausgang ausgeliefert zu sein gegenüber dem
 
-wnz zesulsuauypsey Buyo al 3
-pP 'usjelaß
-I vonenns ayaıbpwun aule UI Jyou "uapıam
-RE zue6 au uuey yaıpusjzja7
-Y Jon ueezauey, sBue] jlenjuene pun
+gen, wie eine
 
-voneönen JOp 199 1PISJIOM jeIn Wapıoyia puejsuun
-> ka ir Vaznayy nz puım uap uabaß abhoy
-ai 4 Ye4 Spujsßuew aıp m uayas walgold
-= regen SIv "wußueßnzun sabeı
+at. r mit Beteiligung unserer Kogge
+t ung . Mittelalter sicher deutlich ab. Die Crew und selbst
 
-P 1A1aIq aueyaag aıp pun uayoew
+er wre eis 2008).’kam die Daheimgebliebenen sind aber auch so voll
+in die Kinos und Topp! gespannter Erwartung. Am 13.8. macht sich die
 
-zı yas yep sddns wa 1
-Solees ap ne old LOLIpUOBC re
-uouo Yoynp palm 'mMa3Q pun Jeddiyg uay ee
-‚op SIWLLSNUO apuysßuew ag Er esap.
-ayassaq Jawwi AU YSINPep uajye,
-pun apııgaßsne wesduej seßugßson uaya; Fand
-auyıı yoınp JOIUNSHIUSS Uapınm i
-w 'syapunypyer USLZ Sap Bunsyen on
-pun Bunpiopaßay Jewepow Jun onen
-Op ypou "UEYOSUEW-INEIHN Suanepsun se
-“ma39 aıp yaıs JuugB SBUIPISy SUmg pun puns
--uauuos usuaıp BUNIENUAUO nz pun Ya
-wzınusq ep ssedwoy UNO JEWIUOIN Lapıusuones
--IAeN auJapoW pun JOJOW jne 1yOIZIaN Uap une
-Jon \aynapaq seq'uaßuelsß nz puenog) jne has
-ypeu punsjens Uon yasnuayne 1suoaßou un
-"gaınagsyıyos ueyaubeNINe won yazsıy ann
--£ Sul? JIYOS SEP JUWIL YOOISOy U Wesssun an
-ue ssniyosuy Wu] "USZyaSNnZwn Je alp ul aapı a
-‘oueyy Ip yaıpus @66oy Sıp wuuoyeg sr
-ısnöny wı ujaßes nz uaßunduıpag Lapume
-an JsyoıBow Jayun Yyej6ue] Jaure ne wen
+13-köpfige Crew auf den 300 sm langen Weg mit
+vor Stralsund die Segel
 
-waısıny aöuen us
+jeägerimentaltörn P ungewissem Ausgang Als
+aa enge kurse. = Klon, Oi Kogge mal gesetzt werden und die Maschine für lange Zeit
+itet wird, machen sich eine Mischung
 
-ew abboy ap 'sapı pP
-Tome
+P, die Kieler
+mmertörns mit
+ck und die
 
-yddoj} pun souıy alp U
-wey ‘(8002 ayaıs) apınm pad
-abBoy Jeıssun Bunduliaeg ap
-‘ Jdoy} auyo Jejoyı JaMZ“ WIN R0
+x intensiv für sieht auf einer Langfahrt unter möglichst mittel- ausgeschal
+Ship genutzt awichen Bedingungen zu segeln. Im August aus Sorge und Vorfreude breit. Voller Ehrgeiz
+ım Höhepunkt 28 bekommt die Kogge endlich die Chance, werden das Loten und andere Dinge ausprobiert
 
-ssnıyosqy WOP JOA zuny URS
+öese ee in die Tat umzusetzen. Im Anschluss an
 
-pun ueıon JWWION er
-ay9sılo)Ss!H MIEIELVEL
-\ uaßnp“ um
+& Hansesail in Rostock nimmt das Schiff eine 3-
 
-“ pun „uaqıy ul P i
-1ep  Bunßejuauwesnz ul
-uuewen SMOHEUI a
-ageöjny aules ai
-Jalyn)syey9sad 2,
-a uopung an
-sne yaıs eu apuaN
+3 wchige Auszeit vom alltäglichen Schiffsbetrieb,
 
--a19S re
-yıg Due]
-Ed usyuejs
+ber in allen | = möglichst authentisch von Stralsund nach
 
-yauın
-“ ajsyslaq
-use ul Jeq
+\eby auf Gotland zu gelangen.Das bedeutet vor
+dem den Verzicht auf Motor und moderne Navi-
+@onshifen. Nichtmal ein Kompass darf benutzt
 
-»undsyoH wur
-wnusß dıys
-14 Asusyuı
+bereitete .
+ann. Ulrich
 
-AP pun yoc
-Au Suopauu
-ae ap 'd
+>
+en - wen und zur Orientierung dienen Sonnen-
+nd mode) 2 und Steme Allerdings gönnt sich die Crew,
+der alten | ®s weriahrene Mittelalter-menschen, noch den
+\d nach Visby |...“ einer Uhr, moderner Regekleidung und
+Kogge war mit May hier Nahrung des 21sten Jahrhunderts. Im
+ee Michael era wurden Schiffsführer durch ihre
+Ulrich era aen Vorgänger langsam ausgebildet und
+ın und "ten dadurch eine immer besser®
+starken Cre Biere nis. Die mangelnde Ortkenntnis der
+lang. Bitte lest | uucnen Skipper und Crew, wird durch AnEn
+morgendlichen Blick auf die Seekarte
 
-2e
-uo am ‘uoß
+>hsten Seite.
+
+“gemacht Der Skipper darf sich Notizen
+
+er Kalmar und
+K nach
+je m!
+und
+
+diesen was
+noch S
+
+such
+Inselbe‘ 51
 
 ---
 
 ## Foto 055 (PXL_20261018_133514924.RAW-01.MP.COVER.jpg)
 
-JOußız Izjal
-EIE VENEN
-1zjoWu ON
-m en
-zawyasiay
-ou Lap
-| Jem ey
-omsBemen
-un yaz lei
+präsentierten wir
 
-“ue
-iD)
-393
-H Pueyaziny
+auf dem Mitteahermang
 
-m EP ueyjopuem l
-Pemps Jyas Zueuosay ap
-=# EP Yayyaıydıan Aszbıg
-reysıy Bas pun
+Bordesholm.
 
-ug 'jeıus6
-AINySsyooysyoy
-Ag Yueuewssd
-Im uajlays abeyy
-guauumaß Jopaıdyyy
-NEU SIE ais vew uuey
-2 WasIoßag bboy ap
-*Rlpsuayy uew uuey ayyı
-. "wjoysapjog
-uuoyejayıyy wep ne
-PSSUn um Usyonusseid
-!Iyos
+Wie kann man Menschen
+die Kogge begeistemn und ur
+kann man sie als neue E
+Mitglieder gewinnen?
+Frage stellen wir
+Permanent.
 
-Mi;
+und Skipper
+
+egellehrer Michası
+
+gzey verpflichtet. Leider wa
+
+eSonanz sehr schwach
+
+Wandelten den Kus
+
+kurzerhand in einen Törm nacı
+
+Eckernförde um, und boten
+
+Gästefahrten und Open She
+an,
+
+iel Zeit ur
+Vertragswen
+Fach war. |
+den Mitglie«
+eier
+voi za
+ein
+Fördervereir
+jetzt Eigner
 
 ---
 
 ## Foto 056 (PXL_20261018_133517458.RAW-01.COVER.jpg)
 
-uopey> suyo »BBoy Bıp
-Se pun sı3 ‘wuns Pog
-vaoyoßu SIOpeg wı OSIOMIOZ
-sem 8804 ap pun ey wanxe
-Jem 0,02 PqWsZag Jg "yaugayıo
-uspsgiessyeluns; Sp euebozian
-pun yolsssauyos pun yasiwin)s
-Buej sem 0102/8002 Jaruım 20 °*
-„SUSPION Sap alyona]
-” ap uuemeß pun ue „aueıbBoy
-"Sie MOUSZD YaN J8P !oq Jen,
-Wsopeg seboy paı wsugyo A ©
-uawwousßjne
-wiezysiag Apızesnz sie apınm
-SIagy un ;Bunsopugsay abızug
-uyemoß nau apınm Puejsion sag *
+Was sonst noch geschah:
 
-yeydsoß upou Isuos sem
+Jugend * Der Vorstand wurde neu gewählt
+In Arbeit Einzige Veränderung: Ulrike Abels
+Il / V wurde als zusätzliche Beisitzerin
+Kiel e.V. aufgenommen
 
-jOSUEH Sy9SUOISIH Una}
-open uuep zeigen
-ap apınm 0L0Z Jyelynıy wı Ybasöx
-Bunununsqy ınz Beniersbunzjawigpsie,
-13P SUIWIBLIEPIOJ Sp LIWOPMOL
-apınm 6002 Jsqwszag auın a
-pun ıpeg .sjun yaıpus Yan!
-sep SIq USIONSO
+« Vereinsmitglied Roger Bartosch
+trat bei der NDR Quizshow als „
+Koggianer‘ an und gewann die ,
+Leuchte des Nordens“
 
-BSSEMId AUSSIUEppnS
+Der Winter 2009/2010 war lang,
 
-Yıny
-wayeylasydem 19q sun e
+ierten wi
 
-peu von Bunysn jayun um
-mu UayOOM P jne jem ug)
+j präsent
+2) auf dem Mittela stürmisch und schneereich und
+Bordesholm
 
-ve
-dus usdo pun Vonyejalseg
-wog pun 'wn SPQWEYOZ
-Peu wo] uauıs ui Pueyoziny
-NY UP uayopuem um
-"PeMYSS Jyos Zueuosay ap
-FM JOPI97 Yaryaıydıan Aazbıg
-Beysıy JSiyajlaßas pun
-»ddiys pun USMOyIBSNe apınm
-NW apusuaya0; 13 '[eıus6
-em FOSINYINyOSyaOysyyoq
-us Op ag Juoueuuad
-Sun m uajlajs
+verzögerte die Frühjahrsarbeiten
+erheblich. Der Dezember 2010 war
+extrem kalt und die Kogge war
+zeitweise im Packeis eingefroren.
+Doch Sturm, Eis und Schnee hat
+die Kogge ohne Schäden
 
-aB8oy Jap Jaubız ızul
+Mitglieder gewinnen?
+Frage stellen wir
+permanent. Die Id
 
-yes pun yaz MM
+= Volkshochschulkurses ge
+genial, Ein Wochenende im Na
+wurde auserkoren und Skipper
+und Segellehrer Michael
+Orgzey verpflichtet. Leider war
+die Resonanz sehr schwach
+Wir wandelten den Kurs
+kurzerhand in einen Törn nach
+Eckernförde um, und boten
+Gästefahrten und Open Ship
+an.
 
-2 WersIoßag Ho
-2% Yoypsun q y ap
+viel Zeit und Kraft investieren bis das
+6 ragswerk endlich unter Dach und
+ich war. Mitte Dezember 2009 wurde
+er iedern des Fördervereins der
+schmelzungsvertrag zur Abstimmung
+gelegt. Im Frühjahr 2010 wurde die
+/erschmelzung dann vollzogen und der
+Förderverein Historische Hansekogge ist
+‚Ktzt Eigner der Kogge.
 
-a; WIoysapog
-Ro We wep jne
-N Quos: uaspıd
+Dommertörm war auf 4 Wochen mi
+ne und Deutsche Ostseeküste
+eiten wir Langsam und entspannf
+Be Iner Leitung von Michael
+der Hansesaı wo wir mal wieder
+geiten il teilnahmen. Gemütlich
 
-8 1a
-yoga U!
-puaßnf
+Kr uns bei wechselhaftem
 
-199 peu yo
-
-BALL:
-0} ESASUey op
-PO [EW IM Om "ooysoy yogı, Kar
-
-wuedsjuo pun wesßuer 12053
-ASOYIISISO Ayosinag pun Apstupg,
-
-Bug
+ter durch
+st
+ck nach Kieı üddänische Gewässer
 
 ---
 
 ## Foto 057 (PXL_20261018_133526354.RAW-01.COVER.jpg)
 
-gsq z ale Öiyewabe,
-y2eS us ssnw voyonS sep
+‚n Jahr ko'
+y ‚m Eventbüro Kiel
+igeschehen
+und
 
-un waßunyyon ui!
-ie No raygıS
+jracker vor
+un das Land:
+jelen Sitzungen
+n Sch schließlich ein
+Trefen = neressanles.
+setzbares Konzept ud &n der
+- Wiiger Punkt n
+ya r natürlich die
+Vorberetungsphase Wal ffen
+Sponsorensuche, denn ein Koggentreffei
+f itermarkt ist keine preiswerte
+Angelegenheit. Doch Herr Janzen und
+Frau Hamann konnten einige Firmen und
+Privatpersonen als Geldgeber gewinnen,
+so dass ein guter Teil der Kosten
+abgesichert ist. Mitte Mai wurden dann
+ale aktiven Vereinmitglieder mobilisiert
+und auf die Veranstaltung eingeschworı
+ren
+a haben alle ein etwas flaues Gefühl im
+‚agen, aber wir freuen uns natürlich auf
+en $ehöres  Koggentreffen
+vielen Gästen mit vielen,
 
-gunmshean ANZ "pam
-#0) ebnsZıyenassenn Aisoßene
+Anfang April Wi
+abgenommen und das
+Werft verholt a zu Ra
+hlingswetter ging die Arbej Her}
+der Hand und bald schon Pi
+Kogge im neuen Glanz Na e
+Auftakeln stachen wir Pe a
 
-vapiam JSOJEBJINE apıays;
-, göerUeunayos Jesun oBOI
-yaHWEn SSIamanamsun we
-wu JelesUn jeuo ep
-sereg eyeuoßßoy auıe uı uaypes an
+Ostermontag zum Ansegeln in a
+Zwischendurch musste u
+Kellerlager verlegt werden Wir s Ki
 
-Naps
-Ba IM "uapıam Idauan soßepaıey
+ur Sache In eine Koggenahe Gara$®
+danken. er unserer Vereinsmiß®
+kann Swerterweise vermittelte.
+Großk, Auch unser Scheunen-Lage |
+nigsförde aufgelöst werden.
 
-Su ajssnw Yoınpuayasımz
-N Pad Veßasuy wunz BejuouuelsO
-” ey Mm uses ujoyeynv
-Wen: ei uensu wı oBBoy
-Ss 00 408 pleg pun pueH Jap
-Si Sy ap Bub soyemshunynsd
+Alle
 
-Ps
-en, Bg Yoyen om IP
-Ha, Hyag s
-
-IN
-N ap opınm dv
-
-1 u z
-LO MW Uayanuaßkoy 5 ud
-JNE yolpmeu sun uanay am ge voden
-WI |4NJ89) saney} sema un aye Uogey
-ualomypsaßurs Bunyejsuesay, ap jıe pun
-varsmgow Japaubywusy vanıye ae
-UUEP UaPInM Ieyy any 751 Layarsaßge
-uo]soy} Jap IlaL and um ssep os
-"uauuımab Jaqabpag sie Lauossacenug
-pun uauuıy abıura Uaruuoy UUeWeH nei}
-pun uszuer JH (pog wauuaderkuy
-ayamsıa,d suray 151 PYEULSNEN =
-\ayanuaßßoy ua uuap "Apnsuaosuo
-zen 4 em aseydsbungaagoN
-ap yameu J .
-xp u Mad zönp yea Muzlod
-syessagı ua pun Wazuoh
-ua yolyamS kin
-pun ueßunzuS varav
-uoyayosaßpue] SP 2 E
-
-- EL)
-jan ounauong WO OF,
+htigkes
+das senigk
 
 ---
 
 ## Foto 058 (PXL_20261018_133528564.RAW-01.MP.COVER.jpg)
 
-pu
-Bunynidisqn ınz
+Wieder einmal war so
 
-mus?) Bnazıyeyo
-en yoIssiwwuoy uswes
+Viele wer
+nehmen den fragen, wie lange es die
 
-uensuyo pun
+„vier In angesagt und wie immer Kogge noch geben. wird
 
-'sı 1Besoßue
+Immerhin es gibt sie
+schon 25 Jahrı
+weitere 25 Jahre sind durchaus realı ie.
 
-| saayam u
+r gesuc! eine gewisse Nervosität breit,
 
-award nz pun
-WoWSWWOS jne so 1ua6 u jobeT-uaunayas ı
+ee ger alter Sachverständiger
+uns Fock, in den Ruhestand
+und wir es zum ersten Mal In diesem Sinne
+Nachfolger Herm Oliver
+hatten. Doch Herr Schmidt
+‚serte UNS, dass das Schiff bei uns in Mast-und Schotbruchl!
+"® Händen sei‘. Jetzt fehlen noch
+ige Kleinigkeiten Anträge und
+srschrften und dann hoffen wir, dass
+so wichtige Dokument rechtzeitig vor
+Ablauf des Alten zugestellt wird
 
-ve auoom Jo ap yanmeu eg uanIuuaA
+jas sonst noch geschah:
 
-er sOP jneya\ vom wi pauıß) wsulsie\ 4919
-„aber ayeusßßoy
+« Dirk Schulze-Laging und Norbert
+Dostert unterstützen Bootsmann
+Reinhard Kummer und sind im
+wesentlichen für den Schiffsbetrieb
+während der Sommersaison
+zuständig
+Die Kogge hat eine neue
+(moderne) Toilette mit richtig guter
+funktionierender Elekt Der
+Härtetest steht noch aus..
+spätestens zur Kieler Woche
+kommt die Bewährungsprobe
+Die ersten Gästetörns konnten bei
+herrlichen Wetter N an
+Der langersehnte Regen
+nach fast 8 Wochen Trockenheit,
+machten dee) Sl, u
+Tropfsteinhöhle. as 5
+Ks Wassers ausgedört, nssig
+Koggenahe Garage & und durchlässig
+erer Vereinsmitglied | im weiteren Verlauf des Jahres, zen
+vermittelte. Pa | natürlich die Kieler woche an UNorasee
+r_ Scheunen-Lager n geht es auf
+und zur Bremerhaven®
+ein weiteres Treffen
+angesagt ist. Die Skipp®'
+und Christian Bauer
+Toms:
 
-uuep pun
-yars SU
-Bisseiyaanp pun
+samen Kommiss!
 
-(uopaßsne swosseMm 2109
+erfahrzeuge (GS}
 
-seo uayurmsjdos
-
-sep ualysew
-
-r- ayaoM 8 se) ydeu
-eyy ON uoßoy auyasıoßue] 90
-uopumeis Jonam vayaılloy
-
-10q uUUoN swaaIseg USI9 IQ
-ago,dsbunsyemag aıp JuLuoy
-yapıy NZ suajsaeds
-
-yoou yes ISOLEH
-yupialg JOpuSJalLonyun,
-
-ou Ju SNSOL (ausapow)
-
-ansu au ey ebboy ac
-Bipueisnz
-
-uosıessawWwog Jap Puslyem
-gqauaasyıyas uap In) uayaınuasem
-wı puls pun Jswnuny PpJeyulag
-uUeWS[0o0g LaZINISISUN YaSOQ
-yagıon pun Buide7-ezinyas IQ
-
-:yeyosaß ypou JSUOS sen
-pam yleısaBnz uayıy Sp NeIQV u
-Jon Bnozyy9a1 yuawnyog any
-ssep ‘Im uayoy uuep pun vayuyps?
-pun oßenuy 'uayaybiulalN ad“
-you uayya, aa '.198 uopueH U
-y9NIOyDS Pun-Iseyy ur sun 1aq yıyog sep ssep" ° an
-JpIWIyOS a4 420Q uoyey U
-JenIO WLaH JOBIoJuMeN
-SuuIS waselp u] jew uajsıa wunz sa am pUN
-puejsayny uap ul 004 wo
-Jaßıpuejsianydes oye ‚our
-'laıq JeNISOAION assımaß AU? sad v
-
-sem u
-
-ee SNEYDINP puis Suyer GZ alayıam
-Yen SZ uoyas eis Jqib sa uysauı
-
-Pam us up WM
-gaB yoou aßBoy wu em pun ‚besoßue TE
-
-ap sa ahugj
-am '
-uobey, uapıom ae os Jem jewule Japan au
+Zur Überprüfung
+ind
 
 ---
 
@@ -5474,171 +5414,140 @@ und a Gaer
 
 ## Foto 061 (PXL_20261018_133547570.RAW-01.COVER.jpg)
 
-a
-ee u
-urn mn
+Das Fest
 
-un oc m we
+Dann ist es nacl
+endlich soweit — es (
+diger Erwartung, aber auch mit etwas
+bangem Herzen fal
+serer Kogge
+der Heikendorfer
+N Vortag auf
+besucht. Die
+Holländer sind also schon mal da. Die
+Roland von Bremen musste leider kurz-
+fristig absagen. Und der Rest? Hat alles
+geklappt oder gab es auf der Überfahrt
+noch ungeahnte Schwierigkeiten?
 
-TE
+Wir sind heitfroh, als alle angekündig-
+ten Schiffe pünktlich in der Bucht eintref-
+fen! Ein Wunderschönes Bild geben sie
 
-enden
+‚egenüberliegenden Seite
 
-Wne sie Voyosway wı yom
-
-Ü N 9
-N zsyayn nz
-
-Ka Massa
-
-InB yarzıım uagey
-Voyeıy yoeu sun
-
-Euaaybuamyas Quyeoßun yaou
-Hyeyagn Jop ine sa geb Jopo Iddepje6
-Sale JEH &say Jop pun uodesge dusu,
-"ZINY JEPIO] alssnıu uewaıg uon Puejoy
-SQ ep jew uoyos osje puıs JOPURIOH
-iq yonsagq neuajjoH ui Ba
-‚ne Beyor we uoyos Im u
-Jedwey ag Ayong Japlopuayıap Jop
-
-undyyansyıyos nz abboy Jayasun ul
-funp '0, we um 2
-
-Amos yalıpuo
-ypeu sa si uueg
-
-1804 seQ
+Bas and ma
+es) Screen
+nn
 
 ---
 
 ## Foto 062 (PXL_20261018_133549077.RAW-01.COVER.jpg)
 
-dung yuny
-"nz ap sem "uoyos JIam Jam pun jyoew
--sÖ Jedg sun ey Se Jaqy 'jeın nz yoıl
-um Blem "uslslsıueßlo nz vaysaıL saß
-"MEeISp us gamagsyıyas wop usgau ypı]
--iyel pun KU WEITEN Mejaı us puis
-JM "Ppuazus ulsydsusuuos wi ydoyas
-2} wmonB m ueyuap uoN — „eiyer
-Sopal yzjaf Vsyal] saseip sa gg“ ‚ua
-WNSSwWnyUgng Sala yo any 'Beyuoyy
-We 'Uaßhoy JOP voßaıqy ualzj3] wıag
+‚einsamen
+im gem
 
--ueß aıp MaJ0 I9P
+2, fait die Spannung
+. n Beteiligten ab.
+das Fest ist gut besucht
 
-yoS sueyosund
-ıyonsaq ın6 18! 3 oe vo
-ge uaydanaa VAR Ins
-6unuueds Mn E
-uawesurweß
+hif.
+hrischans Sc
 
-f
+= 2 2 Crew die gan-
+in
 
-| Pap vopyam ur
-| Semwar pun »
+nö!
 
-ne ways uc
-407 18,
+Beim letzten Ablegen der Koggen, am
+Montag, höre ich viele Publikumsstim-
+men: „Gibt es dieses Treffen jetzt jedes
+Jahr?” — Nein denken wir glücklich, er-
+schöpft im Sonnenschein sitzend. Wir
+sind ein relativ kleiner Verein, und jähr-
+lich neben dem Schiffsbetrieb ein derarti-
+ges Treffen zu Organisieren, wäre wirk-
+lich zu viel. Aber es hat uns Spaß ge-
+macht und wer weiß schon, was die Zu-
+kunft bringt
 
 ---
 
 ## Foto 063 (PXL_20261018_133554714.RAW-01.COVER.jpg)
 
-Juyomaß aım Suu
-BBoy Jap uoyerdun
-J4opsım JOqwanon 7
-may Meißepus
-IM 2EyONPUNIE yoen
+Die Saison 2012 begann traditionell am
+1 t dem vereinsinternen Ansegeln,
+gefolgt von einem zweitägigen Trainings-
+törn zur Cı wausbildung und diversen
+Tagestörns mit Gästen. Die Hauptattrak-
+tion, der Sommertörn, wurde aufgrund
+einer außergewöhnlich verlockenden Ein-
+ladung te Juli zu der Veranstaltung
+„Kurs Haithabu"
+Teil des Sommertörns ging über die
+Schlei nach Haithabu, während der zwei-
+te Teil wie gewohnt Mitte August die
 
-"usßozaß Loryadsu,
-’OMZ 890 'g7 we
-YWOS pun aıyer ap
-104 seWweßßoy 8Q
+ter Zwischenstopp wurde während dieses
+Törnteils in Arnis in der Schlei zu „
+am Noor“ einlegt
 
-15
+„Kurs Haithabu* fand im Juli statt und
+war ein Treffen von über Zwanzig frühen
+Rahsegiern aus dem Ostseeraum und in
+Seiner Art bisher einmalig, Begleitend
 
-unasnyy uaBuer" op
-3 yw wyeu aßßoyag .
-"yeyosaß y9ou Jsuos sen,
-ums
-ul sa em 'osneusd ose
-quo} Hye4 uaouy nz
-003 auopniB Jon ar
-Boy ap WS En
-m ueßnsugb Wausgel
+wurde in Schleswig
 
-os uayooqapnd
-3ddeiy non 1ddanps
-uey ueW :
+und Haithabu ein
+maritimes Fest ge- ( [ )
+feiert i-
 
-Junejsag Bu
-O nz ajseg
-eIapıN us
-Bbmsayyag
-aQ ey
+Im histori
+schen Halbkreis-
+wall am Haddeby- KURS HAITHAgı,
+er Noor wurde die Zeit 1000 3
+in die Wikingerzeit gedreht Die ch
+größte Attraktion zu Wasser de
+berühmte, gut 30 Meter lange Mikinger
+schiffnachbau „Havhingsten‘ (dt Su
+hengst) aus Roskilde dar, der zum Erster
+Mal in Deutschland ZU Gast war, Aber
+auch die vielen kleineren Boote Sonia
+das Wikingerdorf gaben ein Wunderschö.
+nes Bild ab und lockten zahlreiche Bes,
+Die Kogge mit Liegeplatz au
+Schleswiger Stadthafen, wo gleichzeig
+ein Mittelaltermarkt stattfand, zog vie
+pen Ship an und wurde tic-
 
-PR Spınm pun ue diys ued
-war boz "pueyyejs Pueuey|
-ezpiab om Ugjeynpeig 4
-= zedabem yım aBBoy
-"9 MOIBIIYEZ URP}00| pun ge pııg sau
-MWSEPUNM UI uaged Hopsoßunyy sep
-nos Sog Lersulaıy uaysın ap yone
-Ay em Iseg nz Puejyosinag ui jew
-ad nz jap Jep SPINsoy sne sbuay
-3) „ValsBunyner" nequpeuyiyos
-Bay söue] Ja 0E InB Swunsag
+Jahre zu üc
 
-Jassem nz uon emvy ay9ıB
-Wepeb yazıabu, Im ap u
-M JOON Jo
-“AgappeH we jlem
-"SIONgIEH uayos
+Be sich die Kog:
+&zeh vier geruderte Boo
+zwei Knoten Fahrt fortbe
+äso genauso, wie es in
+steht!
 
-wosiy wı vos,
-] ) "©5 I524 sawnuew
-ul® ngeyye} pun
+Was sonst noch geschah:
 
-Bimsayag u apınm
+* Die Kogge nahm mit «
+der „Langen Museur
+teil,
 
-May
+Der Koggemast kor
 
-N
+die Jahre und somit
 
-LIYH Syny
+am 23. Oktober zwec
 
-ih
+Inspektion gezogen.
 
-Pusyajßag Syewurs zo
-U pun WNEIBASISQ wap sne woy
-
-1bosye;
-vayny Bizuemz JOQN von vayayı um =
-Pun yeıs nr wu pug; „ngeyyer suny“
-
-Us uy Jauıas
-
-16ajum „IOoN we
-
-AISNYN" NZ Halyag Jap un sung uı
-
-SaSEIp Puasyem apına
-SU U Ropge HBSSSUEH" Hoyaoısoy
-ap snöny IN luyomaß am Bra
-IOMZ Jop Puauyem 'ngeyiep yoeu ps
-AP Jean Buß SUNyEUNWoS sap jıa]
-
-N Bunpeı
--U13 UOPUBY9OHaA yaıuyov Ölayne Jeus
-punßjne apınm "WOLSWLWUOS Jap won
-JeeIdneH Sg 'uajseg yu swoisaße,
-uasıanıp pun Bunpjigsnema,g ınz wor
--sBuruies] usBIbRNEMZ wauıs uon 1810506
-uWbasuy LaWeJLISsUrJEn Wap 1
-Yo NauonIpen uuedeg Z,0Z vosies ag
+“ Nach gründlicher
+Magierte Freiwi gi
+7. November wieder
+Einplanen der Koggı
+Konnte Wie gewohnt
 
 ---
 
@@ -5676,344 +5585,355 @@ konnte wie gewohnt stattfinden
 
 ## Foto 065 (PXL_20261018_133601589.RAW-01.COVER.jpg)
 
-ein su Bunpenus
+Schn
+Schen zwi
+einem ebenso jun,
+Himmelfahrt ein
+gelabenteu,
 
-NUN En
-°q "UOWWOWISJUn a
-D) HEH SINE Uayıyeyen,,
-NER TeWISIP Uapıny ”
-a Jaußasoß — uaße, =
-EIeWOSSIM SBBoy yojpog
-SUCH SIp 'Enusß sseun,
-N '05 wnz ap "uaßeyyen,
-SON YDEU ISyppunz jan,
-yewwos oBuyelsap sag
+und bis S;
+bi N
 
-OU SIMOS UELI
-NEULIOJLU] LUBUYOILUNNSNE
-BSUEy Mmm ZUaseldeu
-geisan yone unu - ap »
+fanden sic
 
-yeuuo4-Buer-NIg Sie 39
-ef WOSaIp Nas 'nys pun
-y 'soyurzany yuı Jahd
+24
+'Schen 16 und
 
-2wU3}eH Jap ve jew one
-do pun waßunuunspaPS
-upe.dss9 apa 5 ;
+32
 
-yause
-, aBamsuoneunojul abuse
+N für fü;
+er Zu erleben das
+arkwind, von ländı
+agen in Kappeln
+"el Abwech.
 
-ab
+und zur Fre
 
-OH nz sy
-IpuRı uon Pumyerg au En
-p „oqayıo nz JenaluagejaB
-4 40) vun "ur yuu
-yey .
-oddiyg Voßunt Osuage IH ulte) m.
-Ze pun gı uayasınz vs zn ee
+ude
+It wird EN
 
-v2
+Mrsek0gg®
+ige Informationsweg® (
+yerige Inf
 
-IS Uapue,
+das direkte Gespräch
+. di 2
+Sehäfsführungen und SE
+auch mal an der Hafenm@
+
+der Fiyer mit Kurzinfos. k
+und s/w, seit diesem Jat
+be als DIN-Lang-Format
+
+de - nun auch überarb
+netpräsenz www.hanse
+ausführlichen Informatic
+geiterminen sowie interr
+
+Der desjährige Sommert
+Kiel zunächst nach Vecke
+Nafftagen, die zum 50. N
+Anlass genug, die Hanse
+Seler Kogge Wissemara
+wei Tagen — gesegnet vi
+„ Nurden dreimal tägl
+
+Ausfahrten aufs Haff fü
+er unternommen De
+“ehr erfreulich. Noch eı
+de Einladung ins Ukra'
+ur BZ
 
 ---
 
 ## Foto 066 (PXL_20261018_133603821.RAW-01.COVER.jpg)
 
-puejuauesin SU! Bunpeiug AP
-Br ‚mınaıpo \PoN WPUNSpe JUOS
-sam Ho yoWwowWeUn J9y0 Di
+den sich 24 Junge
 
-ayı JB OPNaIY inz pr
+n 16 und 32
+Jahren m
+ungen Skipper an >
 
-uap pen
-e en sine uanyejsnYy
+» um für fünf Tage ein
+erleben, das von Flat
+ind, von ländlicher Rık
+u in Kappeln, von Sor
+bwechslung bot
 
-yonbe] jewis,p vapınm — wieya6 SSNYOS ui ayye
+zeigen, ob solche A
+nung hilft, dass die Kog
+re in Schuss gehal
 
-ob — uabe] Iamz Hy ap SSep 'yıy Buny
+> Sn Freude vieler Met
 
-y URpenzuio eIeWaSSIN aBBoy 91904  aplos go "uaßıoz
-ap pun »BBoyasueH AP Bnuad ssejuy
-vapuey jew ’05 wnz Ap "usßeyyeH ’0q Bunjsyoamay/ı
-Op nz opunuLegsoN yoeu ISYDRUNZ or 5 von "ueddey u Yu
-von ayyn) WOHSUOS aßuyelssip J0Q A JOYONPUEI Uon 'pun
-Keil Von sep 'uagayıs
-swaße, JUny uny vun:
-ey ue JaddıyS ueßun)
+r Hafenmauer
 
-Bianer ze pun 9, u
+nfos, bisher DIN AS
+chic in Far.
 
-N abunf FZ. YOs en
+gelterminen so
 
-IBnewugjeH 2
+Der diesjährige Sommertörn fi
+
+Kiel zunächst nach Ueckermünde zu den
+Hafftagen, die zum 50. Mal ttfanden.
+Anlass genug, die Hansekogge
+
+Poeler Kogge Wisse
+
+zwei Tagen — gesegnet vol
+
+- wurden dreimal täglich zwi istündige
+Ausfahrten aufs Hi f für die .
+cher unternomm% Der Zuspruch
+sehr erfreulich. N licher wart
+die Einladung ins Ukranen! land und
+zu | ai.
+
+as ER
 
 ---
 
 ## Foto 067 (PXL_20261018_133611441.RAW-01.COVER.jpg)
 
-el
-nz »
+inser Vorsatz den langsam in die
+Id gekommenen Mast zu ersetzen,
+r h unerwartet schwierig. Im
 
-1eq
-seQ »
-ICH .
-We
-xy.
-Ayez
-\seg »
-9 Jad
-Aley .
-DU ISUOS sen,
+moderneren Tra-
+sschiffen ist unser Koggemast
+massiv und besteht nicht aus Leim-
+holz. Bäume geeigneter Größe sind
+heutzutage aber einfach nur schwer
+zu finden. Ein Expertenteam hört sich
+daher im ganzen Land nach geeig-
+neten Bäumen um. Fündig werden sie
+letztendlich im Wiehengebirge, wo
+eine sehr stattliche, fast 50m hohe
+Douglasie wirklich allen Anforder-
+ungen genügt. Der Förster Jürgen
+Rolf und seine Waldarbeiter haben
+Mühe, den 10t schweren Stamm aus
+dem Wald zu bekommen und wir sind
+über-glücklich als der angehende
+Mast wohlbehalten geliefert wird. Den
+fiesigen Baum in einen Mast zu
+verwandeln, ist allerdings nochmal ein
 
-yasıaq DDBay
+gestal
 
-"Prog ue
-mw awwı wepzjon aune7 and ap Isı
-PN9 wnZ "usydwey nz Pumueßag
-pun uaßoy Ju Joys MENIYEONY ap
-Je 'ajuuoy ueuysIozaq „UOSIqUEyN“ sie
-NuypsgeuoL usjsıa uep uew pusJ
-em lesasueH 48490)50Y Jap jne
-Kos au WOySWWwoS aydınyelle Jap
-wep }6jo) Isnöny wi "J0B uabboy
-oje jne Buespuy Jep pun Jyonsaq
-v8 sang ısı 159J seg "epunaıy
-ar pun us5Boy Ussepue Sp um
-Woyan u OyPSUBULOS WEISYLEU 10g
-rad WOap ne »osanı uı oße
-Kun p ey wı uayaJs uosIeg Jop
-“ er S[y uno] jne Juyomaß
+ordentliches Stück Arı il
+Werft Modersitzki an“ der Seide
+Kooperation mit dem nahe gel 'n
+Sägewerk übernommen Wird, "genen
+Während an unserem neuen Mast
+gearbeitet wird, geht die Kogge ,
+gewohnt auf Tour. Als erstes Highiapı
+der Saison stehen im Mai Gie Hanse.
+tage in Lübeck auf dem Programm
+Bei herrlichstem Sonnenschein treffen
+wir die anderen Koggen und alte
+Freunde. Das Fest ist äußerst Mm
+besucht und der Andrang auf allen
+Koggen groß. Im August folgt dann
+der alljährliche Sommertörn mit Stopp
+auf der Rostocker Hansesail. Wäh.
+rend man den ersten Törnabschnitt
+als „Karibisch” bezeichnen könnte, hat
+die Rückfahrcrew eher mit Regen und
+Gegenwind zu kämpfen. Zum Glück
+ist die gute Laune trotzdem immer mit
+an Bord.
 
-N ap 1yoß "Pam YajlaqıeaB
+Regatta bei Sch
 
-Boy
+Was sonst nc
+® Karlık
+per G
 
-Vonau Wasssun ue pussyey
-a Vewwoussgn yuamaßes
+® Das\
+zeit v
 
-u, Syeu WEp Ju uonessdooy
-
-Rp, & op ve MzuIssepoyy nam
-D 'agıy IMS SEy9muapIo
-
-410 ewypou SBuipsaIe 151 "ujopuenuan
-nz sep uoule u wuneg uaßısou
-vag 'pm ayal06 uorleyagıyom 1sew
-Spusysßue sep sie yaıponıb-gn
-PUIS am pun usWWoyag nz pIeMm wap
-SNE WWEIS UBJamyos 0, Uop 'aynyy
-usgey Jejlagiepiem aulas pun jloy
-usbinr 108304 Jg N6nueß uabun
--WpIoJuy uale yaıpıım eisejönog
-Syoy WOG Ise} "aysımeis Jyas auıo
-om 'oBngsßusyem wı yoıpusyzyal
-als UEpJam BipunJ 'wn usLuneg uaau
--61996 yoeu pue7] uszueß wı Jeyep
-yas yoy wWesjusuedxg ug "uepuy nz
-JOmyos Inu y9ejum Joge aBernzinay
-Puls oyJalg, Jojaubleaß awuneg "ZIOU
--wıa7] Sne Jyplu Jyalsaq pun A
-Isewaßßoy Jasun Isı uajj! x
--e1| USJOUIOPOW
-
-wı "Buamyos Joyenuaun U 2 2
-'USZJaSIE nz Jseyy UOUEWUWLONaB auıer
-ep u wesßuej uap ziesion J2SUNn
+® Axel
+° Himr
+° Herz
+® Das
+beli
+Serzon
+Tra
 
 ---
 
 ## Foto 068 (PXL_20261018_133613055.RAW-01.COVER.jpg)
 
-yswun-pund” eneßa,suonp®! L
+‚eschah:
+‚er von unserem damaligen Schlep-
 
-a} apsgjuauul JOP u Jona J-J0ld!
-e aBBoyY zo AP yuuwiu ssnyasgeu
+‚dt, der ehemalige ‚Skipp!
+„geht leider von uns
+chleswig-Holste!
 
-vaypsuorew OP u
+Was sonst noch 9
+Karl Kristan‘
 
-peu UOHUP]
-gave wor yw u
-Surdioy wopuaßn!
-dmas9 AP yuwius
-‚95604 JOP
+.
+in Magazin kommt während der Werft-
 
-em 1UWON urzebein agsjoH-DnsaiWS wi
-sun UOA yopial 1496 puen09 ‚
-ya Jap pueisui ey
+je Beutler-K
 
-zouıwı PIMN (puogeiol04d y
-wieg-venshu
+Crewplanung von Utt
 
-uuny-onn®d ayı von Sunuei!
+‚ein mit dem
+ten na
 
-pam ‚op pualu
-addnS Hıewe .
+Kurzausfahl ich Feierab
 
-yeupsaß ypou jsuos SEM
+r malerischen
 
--dayag voßıewep wayasun UON
+immt die Kieler Kogge an dei
+der Innenf ‚de tell
 
-ana Jap Stun puny pP nupag 12q DNDBOd
+ms-Kieler-Feuer in
 
 ---
 
 ## Foto 069 (PXL_20261018_133618656.RAW-01.COVER.jpg)
 
-wogo.dsBunJelsHoJ0Y sep Lea)
-„yadxg u pun pujsion ulaugis
-2 mais suloL yongaß In, asıam
-5 sa AP) WPIM UaBUnyes
-FBaIS ussIoNp MIO ap yaıs
-TaneM yopuaag Jdnige uosIeg aıp
-p 52 plau9 IEYUOIES We ZjeIdeß
+Am 18. März ist es soweit - der alte
+Koggemast wird per Kran aus dem
+Schiff gezogen und wenig später
+durch seinen Nachfolger aus Dou-
+ersetzt. In Anwesenheit von
+hkeit und Presse ist das für
+uns ein feierlicher Augenblick, an dem
+jeder aus dem Verein teilnimmt, der
+Irgendwie kann. Mit nagelneuem Mast
 
-nn vawwejsoßuUe UaUIES usjjeyag
+„Zwischenhoch muss die Ko,
+dem lang ersehnten Sommeröm
+schon in Burgstaaken auf Fehmam
+eine Zwangspause e ingelegen, da der
+Turbolader an der Backbordmaschine
+defekt ist. Schiff und Cr
+abwarten, bis ein neuer
+eintrifft und eingebaut wird
+Frohgemut stechen Schiff und Crew
+danach wieder in See, doch leider
+kommt es kurze Zeit später in Rostock
+zum „Maschinensupergau Die ange-
+Schlagene Maschine gibt endgutg
+ihren Geist auf und tut nun nicht mein
+viel, außer erbärmlich qualmen =
+Nur einer Maschine schleppt sich ®
+Kogge vorsichtig und unverzug
+wieder nach Kiel. Alle Beteiligten
+froh, als das Schiff anso: U
+behalten seinen angestammien *
+geplatz am Satorikai erreicht DS
+die Saison abrupt beendet Be
+Sich die Crew diversen ET
+Staltungen widmet (die teils enden
+weise für gebuchte Törns statti".
+erörtern Vorstand und ein ExP®
+team das MotorisierungsprobleM
 
-gm UASUOSUE JIYOS Sep sie ‘you,
-> reg av "II YDeu Jopaım
-uönzioaun pun Bnyaısıon boy
-ap Is JddeIydS auIyoseyy Jeule ınu
-u yawienb yollueqıo Jayne "Isla
-you UNU In} Pun ne IsI8g uaıyı
-nöpus 1916 auIyoseyy Suaßejyos
-due Ag neßiednsuauiyoseyy* wınz
-WOSOy U JEECS 119Z azıny So Joy
-ap POP ‘885 UI Jepeim yoeuep
-ax) Pun YIy9S UEy9aJS Inweßyouy
-Pam Inegaßuie pun yyınuıo
+mussen
 
-ER] Jenau uls sıq ‘ueyemnge
-SW M319 pun HU9S ISI Y4ajop
-ARSeWPKAWEGg Jop ue Jopejogun,
-ep Lars esnedsßuemz auıo
-uyey ne usyeejsßing ui uoyas
-asuwos ualuyasıa Kueı wap
-O4 ap ssnw „yooyuayosımz“
-
-!Bz1lodzynyo
-
-Slass
-AP um em
-
-Hpuaß; &
-Puasyeyy Pnoße) yo
-
-Sn
-ssnw ig
-
-Umbasuy sep one
-
-ws JoyleIsoh "UolSIUyoseyy Sarasun
-
-POL uayoızjoyd
-
-VOSIES JOp yoysBunvenus um uauss
-ISeyy wanaujsßeu HN "Uuey almpuaßj
-Jep Ywwiuge) usa Wep sne jopaf
-wep ue "Yılquaßny Jaypıpara) uls sun
-IN) SEP ISı assayg pun Jlayyoı 176)
-UoA Jleyussemuy u] zlasıa aseıd
--nog Sne J8BjojyoeN ueulas yoınp
-Jayeds Biusm pun usßozab Hyas
-wep sne uBsy Jod pum jsewsbßoy
-Se JOP — JIEMOS SE Isı ep 'gL wy
+urbolader
 
 ---
 
 ## Foto 070 (PXL_20261018_133620056.RAW-01.COVER.jpg)
 
-wo0g
-aryad
+'g9ge auf
+Imertörn
+ehmam
 
-azımıny sep Ve
+da der
+aschine
+müssen
+bolader
 
-uobboy ae 0 *
+j Crew
+leider
+ostock
+ange-
+dgültig
+t mehr
+n. Mit
+ch die
+üglich
+1 sind
+wohl-
+, Lie
+art ist
+‚rend
+eran-
 
-wu waulg Mu
+"salz
 
-uwesdosd Ua! ei
-a Sp sIeWI ja 1UWON yayeds
+Was sonst noch geschah
+gesfahrtı
 
-uswnasny Ja Jap ue
-uwıu oBboy a0 *
+neben den üblichen Ta
+Christian Heim an BO
 
-pıog ue wiaH UI}
-Buejueuosies WunZ UI
+Kieler Marie
 
-suy9 auew Jalaly WON Jaıye,
-1916 (usuyejsaße,L Laud!
+Wir bekamen (
+begeisterte Mitfahrer vom
 
-AN ayaysıabeq
-an uap usgqeu) usaweyag JIM
+Der alte Kogge
 
-yeyosaß y90U ysuos $!
+.
+(as Kulturze
 
-em
+Großteil an d
+boom
 
--ie>-
--u8J9
-puall
-ıs! yc
-gi |
--yoM
-puIS L
-yaıbn
-aıp y2
-uw "U
-zyaw )
-Binbp
--abue
+det
+fähigen
+nen Jug
+Jugend kutti
 
-49080:
-
-Japıa]
-
-MO f
-
-Japejoq
-usassnLu
-auıyase
-Jap ep
-
-wewys
-woyuaL
-‚ne »B6:
+'en) gleich zum Saisona'
+rd
 
 ---
 
 ## Foto 071 (PXL_20261018_133623970.RAW-01.COVER.jpg)
 
-"Uauuoy nz KLERTTES ug
-Ue6 pun IIOA Jopaım ws
-OUOS Yoyyımm us SO IS| 'uoy
+Zur Kieler Woche
 
-Vom uensu Jop ©: sine ua
-Kl un INE7 uouyom
+der Saison 2015
+begleiten uns weiterhin: nach der
+abrupten Beendigu
 
-P uagau yon
-jBgeg 'ısı Snyomuye, Japaım ayaoyı
+ng der voran-
+gehenden Saison, stellte Sich heraus,
 
-Jay ınz yomyund HS sep ssep
-"Uoyuepien nz so 1 'SumoA sop
-AeWayne yone pun “u oyary saye
-ZIESUIZ Loyaypnweun Wep inN oz
-Sp ueBo6 Nemo us WuBag SZ
-‚1108 vowuysuue UDeS Jop Wemofyey
-9P yaIs ssep UOssogyasag pm -
-Woysısoß Bunsorzueung AP Wappen
-"wnuai PIPBUBpUAdg eu ayong
-Iw weedoß
+Neumotorisierung
+N. Finanzierung,
 
-NS "uoseg uopusyas
-"UBIOA jop Bunßipuoag uoldnyge
-‚OP eu zulyonom sun voyay6ag
-Sı02 vosres Jap uoppyosjeds ag
+und auch außerhalb
+ist es zu verdanken,
+ff pünktlich zur Kieler
 
-290,4 A2JDLy anz
+Schi
+
+Woche wieder fahrtüchtig ist. Dabei
+
+ben dem eigentlichen
+
+En unge-
+en Moto-
+
+© der ne
+lich Schönes
+wieder voll
+
+und
+ff verlassen 2
 
 ---
 
@@ -6025,442 +5945,505 @@ _(kein Text erkannt – vermutlich Bildseite)_
 
 ## Foto 073 (PXL_20261018_133630456.RAW-01.COVER.jpg)
 
-ypou JSUOS SEN.
+Kieler Woche
 
-„usoHL
-540
+Das Koggejahr 2017 ist ein aus-
+gesprochen aktives Jahr. Die Saison
+beginnt (neben dem vereinsinternen
+Ansegeln) mii verschiedenen Theater-
+veranstaltungen an Bord, Zunächst
+beehrt uns in Zusammenarbeit mit der
+Geobuchhandlung das Werftparkthea-
 
-'ogep SOjle }S1 puyy jaın
-u swoNeBaS LBBINDBUy nz sıq uaın
-SR uaydıyewWwos uoA Joa
-sep ‚my yone 116 Sep - Iyer soyaın,
-„söunsypamge UIO 2102 151 Wwesaßsyj
+fer. Auch die Volksbühne ist wieder
 
-"VESWIEyUI8 z1eyos
-uono) ULM Inep pun uelyez
-SRBS werdeßus Jeyons
-ag ve IP PURIyeM "ueyouag
-wenauagy Lay) OA Op uauuoy
-pun Pay} UI Yomanz alle Puls Juoeu
-‚swnasnyy INZ YOINNUNd "uasse| nz
-ugwneg 81888 BIP Bnyau sopeım jew
-yapua 'nzep YOISON eu Uyepyony
-gun "U OP VEZInu yIyaS pun maug
-wweßoig WEp jne Jyas lesssuen
-MROISOY BIP PUN Jalam UOyos yone
-408 Puagalypsue ag unisney
-EP RX Map Jeds Jojung sie yors
-weddndus Voßunesuesgy apıag
-Vaud IP pun Sbrusnodg
-> @PXU0YI3 U] 81504 ollamsuayas
-IS Iamz DIeI6 Luep Pun oysoy
-ep Laßlo, S3 7999 wioperd
+ein gern gesehener Gast
+Öiverse Gästen
 
-08 "Yeyospun
+IS @S zum ers.
+Saison nach
+dortige „See-
+e Schiffe und
+ogge genießt
 
-Bnseg ao) on
-1WOLOG HB 9 90) ap
+Gastfreundschaft So
 
-Boy ap pun
+plattform bietet. Es folgen die Kieler
+Woche und dann gleich zwei sehr
+sehenswerte Feste in Eckernförde: de
+Sprottentage und die Piratentage
+Beide Veranstaltungen entpuppen
+Sich als bunter Spaß direkt vor der
+Haustür. Direkt anschließend geht es
+auch schon weiter und die Rostocker
+Hansesail steht auf dem Programm.
+Crew und Schiff nutzen die Hin- und
+Rückfahrt nach Rostock dazu, endieh
+mal wieder richtig die Seele beta
+zu lassen. Pünktlich zur Museum
+nacht sind alle zurück in Kiel und
+können dort von ihren Abenteuern
+berichten, während die kleinen Be-
+Sucher engagiert SAUGEN
+zählen und dafür einen tollen Gold-
+Schatz einheimsen.
 
-eu vosieg
-»818 tunz sa sıq '
-SHOM-JOyY“ pun suy
+Insgesamt ist 2017 ein abwechslungs-
+feiches Jahr — das gilt auch für =
+Wetter: von sommerlichen Tenee=
+{uren bis zu knackigen Segeltörms mi
+Viel Wind ist alles dabei.
 
-va8I0) s3 seo FOUEYASH6 6 u
-FOPOUR 181 Buyngsyoy ap any a)
-BOypuedyuon sep Bunpueyuangoae,
-Jop yım VOQeUSWWeSNZ ur sun Lyaag
-Isyoeunz "POg ue uoßL
+Was sonst noch
 
-EAU UHUapaIyasIR,
-VOUIOUISUNIOA Wap uagau)
-voses og yer SaNIye UayaoJdsa6.
-SNe ua Sı Z,02 yeloößoy seg
+« SoeinT
+Bord.
 
-MASLO asp
+. Esgibtt
+bei uns
+und Vol
 
-APOM I90r
+« Unser
+Hannes
+bestatt
+
+© Wir bet
 
 ---
 
 ## Foto 074 (PXL_20261018_133632238.RAW-01.COVER.jpg)
 
-jumssed NUEO
+lgen die Kieler
 
-yeypiuas wor!
+eich zwei
+here
+S. Piratentage.
+2n  entpuppen
+direkt vor der
+eßend geht es
+die Rostocker
+m Programm
+ı die Hin- und
+dazu, endlich
+‚eele baumeln
+ur Museums“
+in Kiel und
+Abenteuer”
 
-waıa.bioh® au
+kleinen Be-
+fs(stoff)ratte"
+tollen Gold“
 
-sne eBBoy JOP
-auyozuueloBßo1 ui
+Was sonst noch geschah:
 
-eys sne Buny!
-eg ap un) JO
+« So ein Theater: Die V
 
-pedhinoM se
+ind das Werftpark-Theater sind zu Gast an
 
-‚asyıon 2IQ yoyeauL ul0 05 *
+das ZDF flln
+‚e Mischung
 
-ve jse9 NZ puis yayeau,
-‚saß y90U JsUoS se
-u
+sten K099®)
+n Bord der Kogge
 
-„pl09 uaıld)
-near)‘
-28 uauıali
-wonayuagV
-pun aM u
-„‚swnasnWw 4N
-upwnegq 9198
-yaıpua 'NZeP
-pun -uH ap !
-wwesbold WE
-19990)504 9IP
-sa Iyab puaye
-‚ap Jon MAP
-usddndiuo ue
-sbeuged 9
-=:
-IP :9PIOJUI9Y49=
-Br [omz ypIe
-[4 SI UaßIc
+{olksbühne U
+
+an Bord
+in ein
+
+Santiano”
+
+nt die Band »
+jrish Folk
+
+in Filmteam
+‚f Männer singe! aus Shanty, I
+
+iges mitglied und Chro
+
+endgültig u
+‚n Nacht di
+‚r erfolgreich
+
+Bord.
+jeder el
+
+rg. Fün!
+jahrzehnte
+
+‚nist der ©
+aus
+
+ind wird vor
+
+haft
+
+jer Wissensc
+niger Meilen
+
+ein wie
+
+Schifffahrt: seum
+auf dem ehemaligen Marine-
+anke Carsten!
+
+unser langjähriger Vor-
+
+n Segelrepaf‘
+n Wechsel in der Vereinsspitze
+muss aus gesundheil ‚en Gründen nach
+
+cktreten. Damit geht eine Ära in
+
+Ende. Wir sind froh, dass Ralph Müller-Beck
+
+‚sarische) Nachfolge übernimmt
 
 ---
 
 ## Foto 075 (PXL_20261018_133640566.RAW-01.COVER.jpg)
 
-"uB)
-user JeINSIEJUM uENUEIPIEAINOM
-uap u euerdiegum UExOIP Jauyı
-zayun 8680y aIp Hep uelyoeuyiayy Jon
-zıny 13 'Sne URJEQIEZIOH asıanıp
-vun) pun ue eBBoy Jep telyog Jap
-ve wam-MaIsıEPoN SIP Jeyep yoıs
-wwiu Bugzuessguim wnz "US18Zj0H
-vabıuıa ue eZ JeP uyeZ Jep I6eu
-wepnz 'ueWWESNZ }SUOS SIE Joyıpjs
-wos IyaIz Pun JEyUSYOOlL UaBUe]
-xp Jayun Jopısı 5604 Jep Zion
-sep - uapul) SEjje SEP IM UQyos og
+Nahezu mediterrane Wetterbedin-
+gungen machten den Sommer 2018
+zu einem ganz besonderen Hoch-
+genuss. Vom Seestadtfest in Bremer-
+haven, über die Piraten- und Sprotten-
+tage in Eckernförde bis zur Rostocker
+Hansesail und weit in den Herbst ist
+praktisch die gesamte Saison in
+warmen Sonnenschein getaucht — mit
+Einer Ausnahme, die unter den Kieler
+Bürgern für reichlich Spott 5
+Pünktlich zur Ki pott sorgt:
 
-Jossey aluny sjne
-wapsuayy ep SO Jyalz JpEIS Jap uı
-azıyawwos 189 pun aßeisßBunyang
-wand ayas Jeuls Boy Sıp yaıs
+ieler Woche gewittert
 
-10, Wo6»
-Jay uap Jayun aıp "awyeusny =
+sich die Kogge einer sehr guten
+Buchungslage und bei Sommerhitze
+in der Stadt zieht es die Menschen
+aufs kühle Wasser.
 
-YW — Jyone}9B ulayosuauuog uauuem
-u uosıes awesob ap wWsyed
-IS! JSQIOH uap uı Jam pun Nesasue}
-49490150 ınz sıq OPJ0JUEY03 UI aßeı
--u@olds pun -usjeuıg aip aaqn ‘uaney
-JOWaIg UI JsoppeIsaaS won 'ssnuad
--y90H UaISPUOSaq zueb wauıs nz
-8L02 JBWWOS usp uaypew uadund
--uIpSqIoyoM vueusjpaw Nnzayen
+So schön wir das alles finden - das
+Holz der Kogge leidet unter Ei
+langen Trockenheit und zieht sich
+stärker als sonst zusammen. Zudem
+nagt der Zahn der Zeit an einigen
+Holzteilen. Zum Winteranfang nimmt
+Sich daher die Modersitzki-Werft an
+der Schlei der Kogge an und führt
+diverse Holzarbeiten aus. Erst Kurz
+vor Weihnachten darf die Kogge unte!
+ihrer dicken Winterplane in den
 
-2IBOy unog uoumag,
+wohlverdienten Winterschlaf versit-
+en.
 
 ---
 
 ## Foto 076 (PXL_20261018_133642137.RAW-01.COVER.jpg)
 
-- " ’
+Nas sonst noch geschah:
+len Jahren von
 
-el
+chselt und 9
+nochmal
 
-jjsosad ap ID oa)
-asromswyeusn® oyuoeuuoM
-op U oHB0 ap us eo * e
-‚yoninz 1 unomepass mon
-peu WW) yewwed eumen * Ui
-uensuud 1591 zıuoA eawoJs00 * Ja
-zualz yeyasuapıanı) zu
-yapoße — ve nel sopuaumımy0S 77
-sun Ines ssniyasgeuosieS wnz ® ue
-; y ua Inu swago.dienou2S sauıo zw
-uebom 1510P® joy yaeU voneysowaud ul ‚sappe1s99S won YUePONU aQ uof
-ers jo U! jewsap Yopu! i Ö
-zyoq sone VEUPIR.. Wiaanıon von uayPLL UNS yp) ea 10 Ds
-. N
-wepneuos BIOFR wogo.b nw uepıems3 » ‚ap
-yı an) ayoızıau zueß sep
+35 en we
+lotte Hamann ZU Ralph Müller-Bec!
+ahrelangen: un
 
-negaBul® Jo}
-jzesul3 uaypııpnuoun “uoßueja.yel ul
-‚9 uoyuep AM aan yag-alnN udıeY nz uu
-n ‚N eweH 9
-yoeu ıyab pun yasyaaM es. 00
-ne 'Q ==
+das 5 = herzliche für ihren j
 
-ewy9oU snopeu!
+der ps ‚erden mit großem Erfolg Schalldäm!
 
-von uasyer uojjo) uaJOlA
-:yeyosaß y9ou Jsuos say
+sich K r Koggedisch (d.h. ein Treffen von Vertreter
+
+jem : oggen) findet diesmal in Kiel statt.
+
+gen Die Rückfahrt vom Seestadtfest in Bremerhaven nach Kiel erfolgt wegen
+
+m eines Schottelproblem® nur mit halb
+
+an « Zum Saisonabschluss saugt unse |
+
+hrt schwimmendes Tau an = ärg!
+
+zZ Mitleidenschaft zieht
+
+er « Dorothea Kohtz 1öst Christiane Lag
+
+n « Martina Dammrat tritt nach
+
+N ewsredakteurin zurück.
+
+I- Da sich die Kogge in der tt befindet die
+einnachtsfeiet ausnahmswe! an Land statt uf bedanken
+AkkerbooM für die Bereitstellun er Räumlichkeiten
+
+7
+
+3
 
 ---
 
 ## Foto 077 (PXL_20261018_133645818.RAW-01.COVER.jpg)
 
-"Beniag uaßnyeny
--7e} LEUISS Jaysıa] „ysamjaßon ap
-0° uRIBAISJEIENIYN JEp pun lyonsaq
-Bunasießag Jeyosb m abhoy
-ap pJım JelH jBIM Yoeu Yonınz Jopaım
-Mpeuswnesnyy Anz yoınyund ujosuj
-vapsiuep SIp Jeqn Sa Jyaß “uagıaı 1
-vayeuga] Juyomaß Wep ypen 'sıs ne
-POSOY UI IESASUEH BIP LOyos Joyem
-Knöny "LI 8 won usyelznziajlam
-BZ sa ısı aBBoy Jejaly Ip In) pun
-FPaIM UEIIg BIP yaıs uapaıyosgeuan
-Pusgeßejuuog wuy 935 ul swlorziny
-"2 wans abboy aıp pun japuemuaa
-Rupueyy ung sul UI opeuswoud
-Seh aip ypıs ey Beyiosy we uoyas
-"SPIQJLIYOZ u Byeyyadsusjeug
-Pine jsyoeunz ıyoß sa pun
-Rp son Wouswwog Suyssıaßug]
+Das Jahr 2019 startet turbulent.
+Schon vor Saisonstart gibt es einen
+unerwartet abrupten Wechsel in der.
+Vereinsspitze: der noch relativ
+frischgebackene Vereinsvorsitzende
+Ralph Müller-Beck legt sein Amt
+überraschend nieder und statt dessen
 
-@P WEp Jyays jan '
-boss Us Jsnöny wi "uaulaw
+auch die Geschäftsstelle neu besetzt
+werden, und wir können Ulrike
+Teigelake für dieses Amt gewinnen
 
-Be BuyelBuey Sala am 'siubiayg
+Vereinsadresse: Werftba,
+8. 24143 Kie), Sr
 
-A us — yo Jay abluuos
+Was Sonst noch geschah:
+* Die Saison starteg
+bei de
 
-2 öypınp auI8 151
+E Werft in Ami
 
-eig Ei Hiyas wu
+Die Kogge ist a e con
+Moderne Navigatio;
 
-Fin sog, 10s Jopaım 6,02 uagey um
+Für den Dreh jst
+Bremerhaven ang,
+Im November geh
 
-Ey Yayıyayz Bunzjesog
-WELON Isgjas uosieg aıq
+Schwester \
 
-nz Bunyeysuergy Jap Jayyse
+Auft mit
+Mlich reibun,
+wir haben 2019 wieder Sehr
 
-YELOSOB pay ups say,
+mit unserem Schiff, Be Spag
+hervorzuheben ist eine durchge
+sonnige Kieler Woche _ ein Be
+Ereignis, wie viele langjährige BR
+achter der Veranstaltung ZU Wisgen
+meinen. Im August steht dann der
+langersehnte Sommertöm Vor der Tür
+und es geht Zunächst auf das
+Piratenspektakel in Eckernförde,
+Schon am Freitag hat sich die Hafen.
+promenade in eine bunte Marktmeile
+verwandelt und die Kogge sticht zu
+Kurztörns in See. Am Sonntagabend
+verabschieden sich die Piraten wieder
+und für die Kieler Kogge ist es Zeit
+weiterzuziehen: vom 8.-11. August
+wartet schon die Hansesail in Rostock
+auf sie. Nach dem gewohnt lebhaften
+Treiben, geht es über die dänischen
+Inseln pünktlich zur Museumsnacht
+wieder Zurück nach Kiel. Hier wird die
+Kogge mit großer Begeisterung
+besucht und der Mittelalterverein „Op
 
-N Uauuoy st
-1Z18saq nau SINSSyeyosag IP yone
-ssnw lesypam Jap aÖnz wı Ayem
-"8 uuszysiag onau sıe ugeng zoyı
-AueydaIs pm wapnz (sjagy axuNn
-SpuUaZusion 'z) Iyema6 Uapuazıs
--J/OA °| wnz uuewiez Preyuioy pam
-uasSap Yejs pun Jopaıu Puaypseusgn
-Wwy us 189] NT Ydees
-SPUEZUISIOASUIMJAA SuSyIegasynsu;
-ANejel you uap "azydssumian
-Jap UI jesyoay ualdnuge Joyenusun
-uauıs Sa gib WEISUoSIeS Jon Loyag
-uoinginy eyes 6102 Ayer seq
+de Vogelwiesch“ leistet seinen tat-
+kräftigen Beitrag.
+
+ln
+
+k wegen der anstehend
+r si i en
+hazzı 'plerminvergabe etwas vi >
+
+t no
+jas sonst I
+M . Die Bi
+
+Segel
+Der V
+Unse!
 
 ---
 
 ## Foto 078 (PXL_20261018_133647187.RAW-01.COVER.jpg)
 
-jonau uaul®
+a
+E ckernförde, das
 
-yawmuaßıa U
-‚ve IP
+at sich die Hafen.
+bunte Marktmeile
+Kogge sticht zu
+m Sonntagabend
+lie Piraten wieder
+‚0gge ist es Zeit
+ı 8.-11. August
+sesail in Rostock
+wohnt lebhaften
+r die dänischen
+Museumsnacht
+el. Hier wird die
+Begeisterung
+lalterverein „Op
+et seinen tat-
 
-az sep 18! sag ‚ebasyd sonau UI
+ınd Problemen
+minnot ist die
 
-"pam uayaßsalıam ADIE „bb
-„gsueH ‚opıy ap I Sa SSeP Ns
-„sy vayoysBunuyou uuep Jap pun
-uayoH pun uaßueg J0II0N ayer u!a IS!
-zaraıq sem TeIeWON UOA uIay9SUy/
-uassımab ueuls 'sne Jossem WOA
-ısapununz 'anıuaa ayooM JBlaN
-apuapuels zqwandas wı jayedsıan
-ap yony "uauugy UaUyo Jeyansag IN}
-kembueg ap (uaWwyeuggewsjypision
-Fe Jopaım yapua JM
-PO Jap yeydsulaw
+über alte und
+museum aus
+terlässt
 
-yey 'alned
-eis OP yw
+Wir
+Herzen für
 
-omuanequg alasun *
-‚d auıa 1uyeg uso\.eQ *
+eins.
 
-Buß yued ul HUOS SEP wos 1ebas
-y s Bunynssoßıng IQ *
+Unmögliche wird wahr — was wie
+" weit entferntes Problem in China
+fe, erreicht im frühen Frühjahr
+„Kiel Covid19 hat von nun an
+Pr gesellschaftliche Leben fest im
+gift. Für die Kogge und das
+Vereinsleben ist das der vermutlich
+kärteste Schlag in der Geschichte des
+Schiffes. Ausfahrten und sogar die
+Pflege des Schiffes sind im Frühjahr
+und Frühsommer weitgehend un-
+möglich. Doch der Verein hält sich mit
+Online-Sitzungen und Coronahilfen
+über Wasser (Bund + Stiftungsge-
 
-og ap W
+meinschaft der Förde-Sparkasse), bis
+wir endlich wieder (unter höchsten
+Vorsichtsmaßnahmen) die Gangway
+für Besucher öffnen können. Auch die
+verspätet im September stattfindende
+Kieler Woche vermittelt, zumindest
+vom Wasser aus, einen gewissen
+Anschein von Normalität. Was bleibt
+ist ein Jahr voller Bangen und Hoffen
+und der dann hoffnungsfrohen Aus-
+sicht, dass e$ für die Kieler Hanse-
+kogge aktiv weitergehen wird.
 
-abboy AP yoyı!
-‚yeyosaß yoou 1SUOS Sey,
+Was sonst noch geschah: « el. Dies ist das 2ie
+= Die Bürgerstitung stiftet = Rooms ein neues Großse9
+Segel seit das Schiff in Fahrt 9! aLder Stadt Kiel an-
+. Der Verein bahnt eine Fe BE hat einen neuen Eigentümer
+‚erft, die werft
 
-„o6sbunyns + Ppung) Jassem JM
-uayııyeuoJo9 pun ueBUnzIS-auNO
-yuu yoıs Ney UIO1a/\ Jap yoog "yaıbow
--un puayabylam Jawwosyunsg pin
-yelyng wı puls sayıyaS Sap ab
-aıp seßos pun ueuyejsny sayıpS
-sap alyoIy9Sa9) Jap uı BeiydS aysayı
-yoınnuuan Jep sep IS! uagarsumal
-sep pun aßßoy ap 04 „»
-wı 759} U9q97] ayaıyeyosiesed Cu
-ue unu uon jey 6LPIAOD om v
-ayefuns4 uayn, wı 191819 ”
-euiygy ul WEIgOJd sayuzapua Va
-aım sem — Jyem pJIMm aypuBowun
-
-‚sure
-
-10) vezIeH
-JM
-Isseuo]
-
-sne wnasnw
-pun eye Joqn
-
-aıp I5ı JouuI
-uaweıgold Pui
-
--je} uauIas 9;
-do“ ulassnuayje|
-Buniajsıoßag
-aıp PJIM JOH "Io
-Jyoeuswnasnyy
-uayosıuep ap ı
-nn Juyom:
-SONY Ui
-a 3 Ba
-18Z sa ısı 96Bo
-Japaım ugpeuıg au
-Pusgeßeyuuog fü
-nz Iyons Boy,
-Slsupueyy lung
-Ep yoıs jei
+« Unsere Erbauerwerl
 
 ---
 
 ## Foto 079 (PXL_20261018_133654580.RAW-01.COVER.jpg)
 
-DU mau
-MSSYEYSSES jap 20107 516
-wwoy Ausay Pulrog Pugssoy
-wı vondo7 ayım Urn Zeg
-vop uslyer 9, yoeu
+Kosgelüüd tom Kyle
 
-wuussgn
-er Ägeis jeag Yonınz A uuew
-us ag az yauım OUSPURTSL[‚
-all Suayeus Buyefsup, seg
-N Paeyupay yemoß nau pm Pumision og .
-SAY ayyın SUR VOR 1yoB "agyayol
-nu LREEN OIQ-IOM 'wSq wen
-@b6oy Jep „Ogaßusep|- IQ.
-SNNSSYeyosag asun
-ol eyum 4 yoınwe
-ee Se mel Ausay Pusg .
-N LLTEN WOPIOHE uaßunsseduy
-ueWIalZ you waııom vayefoßjoy uap u pm
-NIEUEISaB apınm SS9204
-UOndo7 ayıy pun }
-UUUNy paeyuisy SOIQ 'Mesg pun Has
-Z) sIeay aun von Bunsseduy Syasıuyoa]
-2 Paeuusy AUS asIamg, Wepyoue
-oz nun VRbasyoyeyssyiyog anoN
+Gegenüber 2020 ist das Jahr 2021
+eine echte Erleichterung für die Kieler
+Hansekogge und deren Crew. Das
+Schiff kann unter Auflagen die
+Saison der Öffentlichkeit
+gemacht werden und auch
 
-“yeyssaß you ISUOS seyn
+und kleinen Seglerfeste
+
+Ö di S
+wendig i
+28. ugermeisg Verringen
+Cr
+
+die Gewinn,
+Migliggern Buß
+
+Von neuen
+Als gewohng,
+
+Schleppender
+
+unsere Kogge, Der Verein
+
+die Koggeliiüg ing Leben, Der ae
+verein legt für einmalig 100 € eing
+imiti i Schaft Ge dig
+
+Meilenstein geschafft.
+
+Was sonst noch geschah:
+
+® Neue Schiffsicherheitsregein
+erfordern teilweise eine
+technische Anpassung von
+Schiff und Crew. Dieser
+Prozess wurde gestartet und
+Wird in den Folgejahren weitere
+Anpassungen erfordern
+
+® Bernd Lesny übernimmt ehren-
 
 ---
 
 ## Foto 080 (PXL_20261018_133656217.RAW-01.COVER.jpg)
 
-ja zuivz 'c WOOgapedl "Kuso7 pu.ag :ossyey9s%9)
+Westphal: erster Vereinsvorsitzende des Fördervereins
+‚uch 5
+„* „g (2011; Jubiläumsjahr):
 
-(op aBboyosuey@uroBos) SZ v
-10m 6,02 'E0 02 wensod "Noll SROONSRIER
+gti 1.Vorsitzender)
+Rn diger Janzen (
+> Der Verein Be nann (2.Vorsitzender) R
+ar Lebe Dr Gaher en Hamann (Geschäftsführerin und Schatzmeisterin)
+@ii R ö yo!
+lie, ash 100 ER "a Ziermann
+2022 & Se die His jeke Löptien
+Klusiven x un und jikeAbels
+Tuck (. und
+)
+Kieler Kung”) des (stand (2018-2019):
+Aneider open, Yo iafMüller-Beck (1.Vorsitzender)
+gut an rt is inhard Ziermann (2.Vorsitzender)
+Ranziei] ler = Reinhard Kummer (Schatzmeister)
+m" Senande mein
+. kike Löp!
 
-(uuojstawzyeysg pun uuauynjsyey9sag) uueweH nor“
+Urich Ziermann |
+eschah: ährenvorsitzender: Wolf-Rüdiger Janze!
+Sicherheiten jeln P
+lweise ne stand (201920201: Vorsitzender)
 
-se
-SUMBNEPIO sap OpUSZIISJIOASUIBLR Ja)sJ0 :eydhsoM yayıt
+= i
 
-‚opt eydais
+Anpassung von j Fer (2.Vorsitzende) I)
+rew. Dieser BE hard Kummer (Schatzmeis:
+de gestartet und I an
+Olgejahren weitere rike Löptien
 
-uozuef sem ; soul ahe nsoa
-) use puog
-uny Peuulod
+n nn
+erfordern se Zn Straten \diger Janzen
+übernimmt ehren- p) Wolf-Rü
 
-) 0, sjoav un
-son os pseyutoy
-iö7
+Ulrike Teigelake
 
-nom opuozy1SJonudNyg
-uorens Ju. 1 Otueydayg
-uueuuolz youın
+Ehrenvorsitzender:
 
-uonde7 ayın
+äftsstelle H )
+der Kogge stand 1 ner Fa
+f-Dieter Yor ard Ziormann 1zonde) ver)
+Reinh (2 Vorszozmeist
+von uns. Ulrike Abel mer ( fissteile)
+ird neu gewählt: Reinhard Y (Geschd
+ge, erfahrene Bern: n in
+d Ulrich Zier- Beate Stab}, or stra Way-Rüdiger Janze
+k. Beate Slaby StophaPll vonder: e0
+nee u i ‚kogge Kiel e.V., Postfach 20 03,
+e Löptien im sche Hansel kog90.de)
+Lesny Kordae rein 5 (segeln@hanse RE
+eschäftsstell FT 49 adebr
 
-uozuef soßıpn
-
-it (opuozusioN 2) SIOqY ayunn
-
-azısıo )) UueUOIZ paeyusy
-AT zoz-6102) punsin
-
-uozuer J0BIPNY-JIOM JOPuUSZyISIonuang
-
-UUEUNSIZ yauın
-
-uondo7 ayım
-
-sioqy an
-
-(ajsIawzyeydS) Jawuny preyumy
-(3PU3ZySION zZ) uueUNoIZ paeyums
-(apuszysion',) J99g-1011nn H
-:16,02-81.02) PU)
-
-sıoqy al
-uondo7 3"
-uueunanz 97
-
-(„BpuszysioN Z) uueuuelz Lone"
-(‚apuazysioy ,) uozuer JoBIPRT,
-
-za
-:{agefsunnejranf 1702) por
-
-stowzieyps) Jowwny paeyuyy |
-
-ayalssyeyasa:
-wwoy Äuse7]
-wı uondo7 &
-uap ualyer 9,
-Agejs eag 'y
-az yauım p:
-auasyeua 06
-yemaß nau pa
-"SUN uon
-JOJaIg-,
-a6Boy op u
-SOISSye
-yejoßiaL oyıym
--uayo Jwwıusagn
-WEPIOJS ı
-AUOOM Uayyeloßjo
-Pun jJsyejsaß ap
-JOsaIg 'may
-von Bunsseduy
-auls asıg,
-Yebassyayıay; = =
-"yeyosa
-
-Jayou ei
-ine = Is1 Bi
-Pun nn NMrzueuy
+esny,R
+rel. le: Bernd Lesny,
+Pi ‚partner/Geschäftsstel
 
 ---
 
